@@ -9,3 +9,4 @@ SEPTIMO.- El Gobernador del Estado enviará al Congreso del Estado o a la Diputa
 Palacio Legislativo, Campeche, Cam., 31 de Diciembre de 1992.- Dip. José Antonio Ramírez Thomas, Presidente de la Directiva en turno del H. Congreso del Estado.- Dip. Jorge Manuel Lazo Pech, Secretario.- Dip. Arturo Villarino Pérez, Secretario.- Rúbricas.
 En cumplimiento de lo dispuesto por los artículos 48, 49 y 71 fracción XVIII de la Constitución Política del Estado, lo sanciono y, en consecuencia, mando se imprima, publique y circule para su debida observancia.
 Dado en el Palacio de Gobierno del Estado, en Campeche, a los treinta y un días del mes de diciembre de mil novecientos noventa y dos.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO, ING. JORGE SALOMON AZAR GARCIA.- EL SECRETARIO DE GOBIERNO, LIC. CRUZ MANUEL ALFARO ISAAC.- RUBRICAS.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
