@@ -1,0 +1,14 @@
+ARTICULOS TRANSITORIOS
+Art. 1º.- Este Código entrará en vigor cuando se expida el Código de Procedimientos Civiles, y en la fecha que fije el Ejecutivo del Estado.
+Art. 2º.- La capacidad jurídica de las personas se rige por lo dispuesto en este Código, aun cuando modifique o quite la que antes gozaban; pero los actos consumados por personas capaces quedan firmes, aun cuando se vuelvan incapaces conforme a la presente ley.
+Art. 3º.- Los bienes adquiridos antes de la vigencia de la Ley de Relaciones Familiares, por matrimonios celebrados bajo el régimen de sociedad legal, constituyen una copropiedad de los cónyuges, si la sociedad no se liquidó conforme a lo dispuesto en el artículo 4º. transitorio de la citada ley; cesando la sociedad de producir sus efectos desde que esa ley entró en vigor.
+Art. 4º.- Los tutores y los albaceas ya nombrados, garantizarán su manejo de acuerdo con las disposiciones de este Código, dentro del plazo de seis meses contados desde que entre en vigor, so pena de que sean removidos de su cargo si no lo hacen.
+Art. 5º.- Las facultades y obligaciones de los tutores, curadores y albaceas que ya estén desempeñando su cargo, así como los derechos que puedan ejercitar los herederos como partes interesadas en los juicios hereditarios pendientes, se regirán por las disposiciones de este Código aplicables al caso.
+Art. 6º.- Las disposiciones del mismo Código se aplicarán a los plazos que estén corriendo para prescribir, hacer declaraciones de ausencia o de presunción de muerte, o para cualquier otro acto jurídico.
+Art. 7º.- Las disposiciones del Código Civil anterior sobre Registro Público y su Reglamento, seguirán aplicándose en todo lo que no sean contrarias a las prevenciones del presente Código entre tanto se expida el nuevo Reglamento del Registro Público.
+Art. 8º.- Subsistirá el domicilio conyugal constituido con arreglo a la Ley sobre Relaciones Familiares, y se regirá por las disposiciones de este Código referentes al patrimonio de familia.
+Art. 9º.- Desde que empiece a regir este Código, quedarán abrogadas todas las leyes de carácter civil expedidas con anterioridad.
+Dado en el Palacio del Poder Legislativo del Estado, en Campeche, a los trece días del mes de octubre del año de mil novecientos cuarenta y dos.- Juan Loeza Matos, D. P.- Álvaro Artiñano Aguilar, D. S.- Nicanor Cuc, D. S.- Rúbricas.
+Por tanto mando se imprima, publique y circule para su debido cumplimiento.
+Dado en el Palacio del Poder Ejecutivo del Estado, en Campeche, a los trece días del mes de octubre del año de mil novecientos cuarenta y dos.- El Gobernador Constitucional del Estado, Dr. Héctor Pérez Martínez.- El Secretario General de Gobierno Interino, Lic. Francisco Alvarez Barret.- Rúbricas.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE CODIGO.
