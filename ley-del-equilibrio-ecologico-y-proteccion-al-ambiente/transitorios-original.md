@@ -7,3 +7,4 @@ Quinto.- Todos los procedimientos y recursos administrativos relacionados con la
 Palacio Legislativo, Campeche, Cam., a 21 de Junio de 1994.- Dip. Juan Francisco Sarmiento Pereyro, Presidente de la Directiva en turno del H. Congreso del Estado.- Dip. Fernando H. Murillo Campos, Secretario.- Dip. Víctor Ortiz Sánchez, Secretario.- Rúbricas.
 En cumplimiento de lo dispuesto por los artículos 48, 49 y 71 fracción XVIII de la Constitución Política del Estado, lo sanciono, mando se imprima, publique y circule para su debida observancia.
 Dado en el Palacio de Gobierno del Estado, en Campeche a los veintiún días del mes de junio de mil novecientos noventa y cuatro.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO, ING. JORGE SALOMON AZAR GARCIA.- EL SECRETARIO DE GOBIERNO, LIC. CRUZ MANUEL ALFARO ISAAC.- RUBRICAS.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
