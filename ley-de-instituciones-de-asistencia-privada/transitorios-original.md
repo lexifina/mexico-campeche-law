@@ -6,3 +6,4 @@ Cuarto.- Los establecimientos que actualmente se desempeñan en la Entidad como 
 Salón de Sesiones del Palacio Legislativo, Campeche, Cam., a 15 de Agosto de 1996.- Dip. Armando Toraya Lara, Presidente de la Directiva en turno del H. Congreso del Estado.- Dip. Carmen G. Fonz Sáenz, Secretaria.- Dip. Yanuario García Cambranis, Secretario. - Rúbricas.
 En cumplimiento de lo dispuesto por los artículos 48, 49 y 71 fracción XVIII de la Constitución Política del Estado, lo sanciono, mando se imprima, publique y circule para su debida observancia.
 Dado en el Palacio de Gobierno del Estado, en Campeche, a los quince días del mes de Agosto de mil novecientos noventa y seis.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO, ING. JORGE SALOMON AZAR GARCIA.- EL SECRETARIO DE GOBIERNO, LIC. FERNANDO RAFFUL.- RUBRICAS.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
