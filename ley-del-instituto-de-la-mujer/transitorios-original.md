@@ -1,0 +1,12 @@
+TRANSITORIOS
+Artículo Primero.- La presente Ley entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+Artículo Segundo.- Por esta única vez, la Directora General del Instituto de la Mujer del Estado de Campeche lo será la actual directora del Organismo Descentralizado de la Administración Pública denominado Instituto Estatal de la Mujer, quedando vigentes los nombramientos expedidos y aprobados por su Junta de Gobierno.
+Artículo Tercero.- Los recursos materiales y presupuestales con los que actualmente cuenta el Instituto Estatal de la Mujer como órgano sectorizado a la Secretaría de Gobierno, pasarán a formar parte del organismo descentralizado denominado Instituto de la Mujer del Estado de Campeche. Los derechos laborales del personal que se transfiere al Instituto de la Mujer del Estado de Campeche serán reconocidos con estricto apego a la Ley en sus derechos y prestaciones.
+Artículo Cuarto.- La Junta de Gobierno del Instituto deberá de quedar constituida en un plazo no mayor de sesenta días hábiles, contados a partir de la vigencia de este ordenamiento.
+Artículo Quinto.- La Junta de Gobierno aprobará y expedirá el Reglamento Interior del Instituto en un plazo no mayor de 120 días hábiles, contados a partir de la fecha de su instalación.
+Artículo Sexto.- Se derogan todas las disposiciones legales, administrativas y reglamentarias que se opongan a la presente Ley y, específicamente, el acuerdo del Ejecutivo por el que se crea el Organismo Descentralizado de la Administración Pública denominado Instituto Estatal de la Mujer, publicado en el Periódico Oficial del Gobierno Constitucional del Estado de Campeche, el día 19 de diciembre del 2000.
+Dado en el Salón de Sesiones del Palacio Legislativo, en la ciudad de Campeche, Campeche, siendo los veinticuatro días del mes de junio del año dos mil cuatro.
+C. Fernando Enrique Razo Santiago, Diputado Presidente.- C. Jorge Antonio Cocón Collí, Diputado Secretario.- C. Margarita Nelly Duarte Quijano, Diputada Secretaria.- Rúbricas.
+En cumplimiento de lo dispuesto por los artículos 48, 49 y 71 fracción XXVIII de la Constitución Política del Estado, lo sanciono, mando e imprima, publique y circule para su debida observancia.
+Dado en el Palacio de gobierno del Estado, en Campeche, el día cinco de julio del año dos mil cuatro.
+WEL GOBERNADOR CONSTITUCIONAL DEL ESTADO, C.P. JORGE CARLOS HURTADO VALDEZ.- EL SECRETARIO DE GOBIERNO, LIC. CARLOS FELIPE ORTEGA RUBIO.- RUBRICAS.
