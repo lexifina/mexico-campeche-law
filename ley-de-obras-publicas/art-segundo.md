@@ -2,3 +2,4 @@ ARTICULO SEGUNDO.- A partir de la vigencia de esta Ley se derogan las disposicio
 Dado en el Palacio del Poder Legislativo del Estado, de Campeche, a los treinta y un días del mes de agosto del año de mil novecientos ochenta y cuatro.- DR. SERGIO BERZUNZA CAMEJO, D.P.- PROFR. ROMUALDO E. MENDEZ HUCHIN, D.S.- JOSE A. PUC PUC, D.S.- Rúbricas.
 Por tanto mando se imprima, publique y circule, para su debido cumplimiento.
 Dado en el Edificio de los Poderes del Estado de Campeche, a los treinta y un días del mes de agosto del año de mil novecientos ochenta y cuatro.- El Gobernador Constitucional del Estado, ING. EUGENIO ECHEVERRIA CASTELLOT.- El Secretario de Gobierno, LIC. PABLO GONZALEZ LASTRA.- Rúbricas.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
