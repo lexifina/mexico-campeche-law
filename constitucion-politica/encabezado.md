@@ -5,6 +5,6 @@ Que el H. Congreso del Estado ha decretado lo siguiente:
 El XXVI Congreso Constitucional del Estado de Campeche, con su carácter de Constituyente, ha tenido a bien expedir la siguiente:
 (REFORMADA SU DENOMINACION, P.O. 23 DE DICIEMBRE DE 1961)
 CONSTITUCION POLITICA DEL ESTADO DE CAMPECHE
-(REFORMADO, P.O. 23, 24, 25, 26 Y 27 DE ABRIL DE 1957)
+(REFORMADO, P.O. 29 DE MAYO DE 1965)
 CAPITULO I
-De las garantías individuales y sociales
+Del Estado y su Territorio
