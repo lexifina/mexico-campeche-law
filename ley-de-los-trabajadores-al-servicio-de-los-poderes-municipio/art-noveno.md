@@ -1,0 +1,1 @@
+ARTICULO NOVENO.- Todos los trabajadores de base serán de nacionalidad mexicana y, de preferencia, campechanos. Podrán admitirse extranjeros exclusivamente cuando no existan mexicanos que presten eficientemente el servicio de que se trate.

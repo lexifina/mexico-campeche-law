@@ -1,0 +1,1 @@
+ARTICULO OCTAVO.- EXCEPCION. Quedan excluidos de las disposiciones de esta Ley los trabajadores supernumerarios de las Entidades Publicas, los de confianza, los trabajadores de la educación, que se rigen por sus normas especiales, y los magistrados y jueces que se rigen por la Ley Orgánica del Poder Judicial.

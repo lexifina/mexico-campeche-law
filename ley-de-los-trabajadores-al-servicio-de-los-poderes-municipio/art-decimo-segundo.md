@@ -1,0 +1,1 @@
+ARTICULO DECIMO SEGUNDO.- TRATADOS INTERNACIONALES.- Los tratados internacionales celebrados y aprobados de acuerdo con lo dispuesto por el Artículo 133 de la Constitución Federal serán aplicables a las relaciones de trabajo, materia de esta Ley, en cuanto beneficien al trabajador.

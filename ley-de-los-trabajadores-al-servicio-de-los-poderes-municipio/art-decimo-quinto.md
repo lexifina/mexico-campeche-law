@@ -1,0 +1,1 @@
+ARTICULO DECIMO QUINTO.- MENORES DE 16 AÑOS.- Estos menores, tienen capacidad legal para obtener, con independencia de su sexo, nombramiento de trabajador al servicio de Entidades Públicas, prestar su trabajo, percibir sueldo y contra prestaciones correspondientes, así como para ejercitar las acciones derivadas de la presente Ley.

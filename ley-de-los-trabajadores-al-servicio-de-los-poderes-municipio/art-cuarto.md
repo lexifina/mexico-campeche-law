@@ -1,0 +1,1 @@
+ARTICULO CUARTO.- TRABAJADORES DE BASE.- Son trabajadores de base los que prestan servicio permanente a cualquier Entidad Pública consignado especialmente en el Presupuesto de Egresos, en virtud de un nombramiento.
