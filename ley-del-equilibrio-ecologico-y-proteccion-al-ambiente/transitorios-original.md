@@ -1,0 +1,9 @@
+TRANSITORIOS
+Primero.- La presente Ley entrará en vigor a los treinta días siguientes de su publicación en el Periódico Oficial del Gobierno del Estado.
+Segundo.- Se derogan todas aquéllas disposiciones legales y reglamentarias en cuanto se opongan a la presente Ley.
+Tercero.- Las dependencias y entidades de la Administración Pública Estatal, así como Municipales, seguirán ejerciendo sus atribuciones actuales en materia de preservación y restauración del equilibrio ecológico y protección al ambiente, siempre que no contravengan las disposiciones que se contienen en la presente Ley.
+Cuarto.- Hasta en tanto los Ayuntamientos dicten los Reglamentos para regular las materias que les correspondan conforme a las disposiciones de esta Ley, el Estado aplicará la misma en el ámbito municipal, por lo que deberá coordinarse para ello con las autoridades correspondientes.
+Quinto.- Todos los procedimientos y recursos administrativos relacionados con las materias de esta Ley, que se hubieren estado atendiendo al amparo de la Ley General del Equilibrio Ecológico y la Protección al Ambiente, continuarán tramitándose conforme a las disposiciones de la misma.
+Palacio Legislativo, Campeche, Cam., a 21 de Junio de 1994.- Dip. Juan Francisco Sarmiento Pereyro, Presidente de la Directiva en turno del H. Congreso del Estado.- Dip. Fernando H. Murillo Campos, Secretario.- Dip. Víctor Ortiz Sánchez, Secretario.- Rúbricas.
+En cumplimiento de lo dispuesto por los artículos 48, 49 y 71 fracción XVIII de la Constitución Política del Estado, lo sanciono, mando se imprima, publique y circule para su debida observancia.
+Dado en el Palacio de Gobierno del Estado, en Campeche a los veintiún días del mes de junio de mil novecientos noventa y cuatro.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO, ING. JORGE SALOMON AZAR GARCIA.- EL SECRETARIO DE GOBIERNO, LIC. CRUZ MANUEL ALFARO ISAAC.- RUBRICAS.
