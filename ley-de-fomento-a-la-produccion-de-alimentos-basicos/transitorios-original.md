@@ -1,0 +1,5 @@
+TRANSITORIO
+Esta Ley entrará en vigor el día de su publicación en el Periódico Oficial del Estado.
+Dado en el Palacio del Poder Legislativo del Estado, en Campeche, a los tres días del mes de abril del año de mil novecientos ochenta y uno.- PROFR. ISMAEL ESTRADA CUEVAS, D.P.- DR. PEDRO LARA Y LARA, D.S.- PEDRO DARIO LOPEZ VARGAS, D.S.- Rúbricas.
+Por tanto mando se imprima, publique y circule, para su debido cumplimiento.
+Dado en el Edificio de los Poderes del Estado, en Campeche, a los tres días del mes de abril del año de mil novecientos ochenta y uno.- El Gobernador Constitucional del Estado, ING. EUGENIO ECHEVERRÍA CASTELLOT.- El Secretario de Gobierno, LIC. PABLO GONZALEZ LASTRA.- El Secretario de Finanzas, LIC. JAVIER MARTINEZ DEL CAMPO HERRERO.- El Secretario de Desarrollo Industrial y Fomento Económico, LEOVIGILDO GOMEZ HERNANDEZ.- El Secretario de Desarrollo Urbano y Obras Públicas, ARQTO. FERNANDO ARANA DORANTES.- El Secretario de Recursos Humanos y Materiales, C.P. JOSE BAQUEIRO ROJAS.- Rúbricas.
