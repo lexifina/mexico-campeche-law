@@ -1,0 +1,11 @@
+TRANSITORIOS
+Primero.- La presente ley entrará en vigor treinta días después de su publicación en el Periódico Oficial del Estado.
+Segundo.- Se derogan todas las disposiciones legales en lo que se opongan al contenido de esta ley.
+Tercero.- Para efectos del otorgamiento del Reconocimiento a la Gestión Gubernamental 2002, se faculta al Auditor Superior del Estado para tomar las previsiones necesarias para conformar al Consejo Auspiciante.
+Cuarto.- Integrado el Consejo Auspiciante en un término no mayor de 30 días se deberá emitir la convocatoria respectiva para elegir a quienes integrarán los Comités Técnicos de Evaluación para otorgar el Reconocimiento a la Gestión Gubernamental 2002. Dicho Comité una vez integrado se avocará a la expedición de los lineamientos, parámetros y criterios a los cuales se sujetará la entrega de dicho reconocimiento.
+Quinto.- Inicialmente dos de los integrantes de los Comités Técnicos de Evaluación ejercerán su encargo por dos años y los tres restantes el período indicado en el numeral 9 de esta Ley. La respectiva determinación se hará inmediatamente después de su elección, mediante procedimiento de insaculación, correspondiendo a los dos primeros ejercer su cargo por dos años y a los restantes por cuatro.
+Sexto.- Para la erogación de los gastos que con motivo del otorgamiento del Reconocimiento a la Gestión Gubernamental se originen, la Auditoría Superior del Estado tomará las providencias presupuestarias que correspondan.
+Dado en el Salón de Sesiones del Palacio Legislativo, en la ciudad de Campeche, Campeche, a los veintisiete días del mes de junio del año dos mil tres.
+C. José del C. Gómez Casanova, Diputado Presidente.- C. Juan Antonio Martínez Delgado, Diputado Secretario.- C. Ana Laura Alayola Vargas, Diputada Secretaria.- Rúbricas.
+En cumplimiento de lo dispuesto por los artículos 48, 49 y 71 fracción XVIII de la Constitución Política del Estado, lo sanciono, mando se imprima, publique y circule para su debida observancia.
+Dado en el Palacio de Gobierno del Estado, en Campeche, el día treinta del mes de Junio del año dos mil tres.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO, L.A. JOSE ANTONIO GONZALEZ CURI.- EL SECRETARIO DE GOBIERNO, LIC. CARLOS FELIPE ORTEGA RUBIO.- RUBRICAS.
