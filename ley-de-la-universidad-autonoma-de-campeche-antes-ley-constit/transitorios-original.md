@@ -6,3 +6,4 @@ TRANSITORIOS
 Dado en el Palacio del Poder Legislativo del Estado, en Campeche, a los veintiún días del mes de agosto del año de mil novecientos sesenta y cinco.- Lic. Enrique Escalante Escalante, D.P. - Profr. Ismael Estrada Cuevas, D. S.- Rafaela Elizabeth Pat Queb, D.S.- Rúbricas.
 Por tanto mando se imprima, publique y circule, para su debido cumplimiento.
 Dado en el Edificio de los Poderes del Estado, en Campeche, a los veintiún días del mes de agosto del año de mil novecientos sesenta y cinco.- El Secretario General de Gobierno, Encargado del Despacho del Poder Ejecutivo del Estado, Profr. Nicolás Canto Carrillo.- El Oficial Mayor Int. en Funciones de Secretario General, Lic. Mario Rivas Cervera.- Rúbricas.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.
