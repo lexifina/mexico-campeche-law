@@ -13,4 +13,4 @@ DECIMO PRIMERO.- TAN PRONTO QUEDE INSTALADA LA SALA ADMINISTRATIVA, TODOS LOS JU
 Salón de Sesiones del Palacio Legislativo, Campeche, Cam., a 3 de Enero de 1997.- Dip. Vicente Castellot Castro, Presidente de la Directiva en turno del H. Congreso del Estado.- Dip. Marta Irene Novelo Lara, Secretaria.- Dip. Edilberto Vázquez Ríos, Secretario.- Rúbricas.
 En cumplimiento de lo dispuesto por los artículos 48, 49 y 71 fracción XVIII de la Constitución Política del Estado, lo sanciono, mando se imprima, publique y circule para su debida observancia.
 Dado en el Palacio de Gobierno del Estado, en Campeche, a los tres días del mes de enero de mil novecientos noventa y siete.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO, ING. JORGE SALOMON AZAR GARCIA.- EL SECRETARIO DE GOBIERNO, LIC. FERNANDO RAFFUL.- RUBRICAS.
-N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE CODIGO.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE CÓDIGO.

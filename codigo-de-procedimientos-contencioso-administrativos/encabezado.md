@@ -1,5 +1,4 @@
-CODIGO DE PROCEDIMIENTOS CONTENCIOSO-ADMINISTRATIVOS DEL ESTADO DE CAMPECHE
-[N. DE E. CONTIENE LA FE DE ERRATAS PUBLICADA EN EL PERIÓDICO OFICIAL DEL ESTADO DE CAMPECHE EL 6 DE JUNIO DE 1997.]
+CÓDIGO DE PROCEDIMIENTOS CONTENCIOSO-ADMINISTRATIVOS DEL ESTADO DE CAMPECHE
 Ley publicada en el Periódico Oficial del Estado de Campeche, el sábado 4 de enero de 1997.
 JORGE SALOMON AZAR GARCIA, Gobernador Constitucional del Estado Libre y Soberano de Campeche, a sus habitantes, sabed:
 Que el H. Congreso Constitucional del Estado Libre y Soberano de Campeche, me ha dirigido el siguiente:
