@@ -1,26 +1,6 @@
-LEY DE SEGURIDAD Y SERVICIOS SOCIALES DE LOS TRABAJADORES DEL ESTADO DE CAMPECHE
-Ley publicada en el Periódico Oficial del Estado de Campeche, el miércoles 3 de junio de 1987.
-ABELARDO CARRILLO ZAVALA, Gobernador Constitucional del Estado Libre y Soberano de Campeche, a sus habitantes, sabed:
-Que el H. Congreso Constitucional del Estado Libre y Soberano de Campeche me ha dirigido el siguiente:
-DECRETO
-La LII Legislatura del H. Congreso Constitucional del Estado Libre y Soberano de Campeche, decreta:
-NUMERO: 056
-LEY DE SEGURIDAD Y SERVICIOS SOCIALES DE LOS TRABAJADORES DEL ESTADO DE CAMPECHE
-TITULO PRIMERO.
-Disposiciones Generales.
-Capítulo I.- Del Patrimonio e Inversiones.
-Capítulo II.- Gobierno y Administración.
-Capítulo III.- Sueldos, Cuotas y Aportaciones.
-TITULO SEGUNDO.
-De las prestaciones.
-Capítulo I.- Seguro de Prestaciones Médicas.
-Capítulo II.- Jubilaciones y Pensiones.
-Capítulo III.- Seguro de Fallecimiento.
-Capítulo IV.- Seguro de Cesantía o Separación.
-Capítulo V.- De los Préstamos a Corto Plazo, Especiales e Hipotecarios.
-Capítulo VI.- De las otras Prestaciones Sociales.
-TITULO TERCERO.
-Generalidades.
-Capítulo I.- Prescripción.
-Capítulo II.- Responsabilidades y Sanciones.
-Transitorios.
+REGLAMENTO DE LA LEY DE ATENCION Y APOYO A LAS VICTIMAS Y A LOS OFENDIDOS DE DELITOS EN EL ESTADO DE NUEVO LEON
+Reglamento publicado en el Periódico Oficial del Estado de Nuevo León, el miércoles 15 de agosto de 2007.
+JOSÉ NATIVIDAD GONZÁLEZ PARÁS, Gobernador Constitucional del Estado de Nuevo León, en ejercicio de las facultades que al Ejecutivo a mi cargo le confieren los artículos 85 fracción X de la Constitución Política del Estado de Nuevo León; 2, 3, 4, 5, 8, 9, 17, párrafo segundo, 18 fracción III, 23 y demás relativos de la Ley Orgánica de la Administración Pública para el Estado de Nuevo León, a todos los habitantes hago saber:
+CONSIDERANDO.
+QUINTO.- Que el Ejecutivo a mi cargo, en uso de la facultad reglamentaria que le ha sido conferida y con el objeto de desarrollar el contenido de la Ley de Atención y Apoyo a las Víctimas y a los Ofendidos de Delitos en el Estado de Nuevo León, así como para dar cumplimento a lo dispuesto en el Artículo Segundo Transitorio del Decreto mencionado, expide el presente:
+REGLAMENTO DE LA LEY DE ATENCIÓN Y APOYO A LAS VÍCTIMAS Y A LOS OFENDIDOS DE DELITOS EN EL ESTADO DE NUEVO LEÓN

@@ -1,3 +1,0 @@
-P.O. 23 DE DICIEMBRE DE 1988.
-[N. DE E. TRANSITORIO DEL DECRETO NÚMERO: 178 POR EL QUE "SE REFORMA EL ARTÍCULO TERCERO TRANSITORIO DE LA LEY DE SEGURIDAD SOCIAL DE LOS TRABAJADORES DEL ESTADO DE CAMPECHE".]
-UNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
