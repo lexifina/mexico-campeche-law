@@ -1,0 +1,1 @@
+ARTICULO DECIMO.- La Comisión de Agua Potable y Alcantarillado de Campeche y los Organismo (sic) Operadores, cuidarán que se respeten los derechos que hayan adquirido los usuarios con anterioridad a la vigencia de la presente ley.

@@ -1,0 +1,2 @@
+ARTICULO NOVENO.- En un plazo de sesenta días contados a partir de la entrada en vigor de la presente ley, el Director General de la Comisión de Agua Potable y Alcantarillado del Estado, someterán a la aprobación de la Junta de Gobierno, el Reglamento Interior de la Comisión.
+En un plazo de sesenta días contados a partir de su creación, el Director General del Organismo Operador, someterá a la aprobación de la Junta de Gobierno, el Reglamento Interior del Organismo.

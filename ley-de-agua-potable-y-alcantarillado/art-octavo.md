@@ -1,0 +1,1 @@
+ARTICULO OCTAVO.- Los H. Ayuntamientos del Estado, dentro de un plazo de 90 días, contados a partir de la entrada en vigor de la presente ley, deberán constituir el organismo operador municipal en los términos de esta ley.

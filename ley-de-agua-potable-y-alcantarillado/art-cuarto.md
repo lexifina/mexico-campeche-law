@@ -1,0 +1,1 @@
+ARTICULO CUARTO.- Los bienes y recursos humanos y materiales de los organismos que por efecto de esta ley desaparecen, se transfieren para el cumplimiento de su objeto en los términos de la presente ley a la Comisión de Agua Potable y Alcantarillado del Estado y a los organismos operadores municipales o intermunicipales correspondientes.

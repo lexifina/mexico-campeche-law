@@ -1,0 +1,4 @@
+ARTICULO DECIMO PRIMERO.- Se faculta al Ejecutivo del Estado para que, en su oportunidad, expida el Reglamento de esta Ley.
+Palacio Legislativo, Campeche, Cam., a 16 de diciembre de 1992.- Dip. José Antonio Ramírez Thomas, Presidente de la Directiva en turno del H. Congreso del Estado.- Dip. Jorge Manuel Lazo Pech, Secretario.- Dip. Arturo Villarino Pérez, Secretario.- Rúbricas.
+En cumplimiento de lo dispuesto por los artículos 48, 49 y 71 fracción XVIII de la Constitución Política del Estado, lo sanciono, mando se imprima, publique y circule para su debida observancia.
+Dado en el Palacio de Gobierno del Estado de Campeche, a los diecisiete días del mes de diciembre de mil novecientos noventa y dos.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO, ING. JORGE SALOMÓN AZAR GARCIA.- EL SECRETARIO, LIC. CRUZ MANUEL ALFARO ISAAC.- RUBRICAS.

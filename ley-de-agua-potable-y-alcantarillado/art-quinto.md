@@ -1,0 +1,1 @@
+ARTICULO QUINTO.- Los derechos de los trabajadores que por efectos de esta ley pasan a formar parte de la Comisión de Agua Potable y Alcantarillado del Estado o de los Organismos Operadores, se respetarán en términos de ley.

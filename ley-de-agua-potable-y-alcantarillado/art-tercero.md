@@ -1,0 +1,2 @@
+ARTICULO TERCERO.- Se transfieren a la Comisión de Agua Potable y Alcantarillado de Campeche, todos los bienes muebles e inmuebles, sistemas, obras, servicios, derechos, obligaciones y recursos que integran el patrimonio del órgano desconcentrado de la Comisión de Agua Potable y Alcantarillado del Estado de Campeche, que desaparece.
+La nueva entidad paraestatal respectiva se subroga en los derechos y obligaciones del órgano desconcentrado respectivo.
