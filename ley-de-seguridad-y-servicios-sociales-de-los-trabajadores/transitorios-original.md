@@ -1,7 +1,8 @@
 TRANSITORIOS
 ARTICULO 1o.- Esta Ley entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
 ARTICULO 2o.- Se derogan todas las disposiciones que se opongan al cumplimiento del presente decreto.
-ARTICULO 3o.- Para efectos del Artículo 60, al entrar en vigor esta Ley, se les reconoce a los Servidores Públicos como años de aportación su número de años de servicios.
+(REFORMADO, P.O. 23 DE DICIEMBRE DE 1988)
+ARTICULO 3o.- Para los efectos del Artículo 60, al entrar en vigor esta Ley, se les reconoce a los Servidores Públicos como años de aportación su número de años de servicio, correspondiendo a la entidad pública de la que dependa el trabajador cubrir las cuotas que le corresponda por concepto de jubilación o pensión y hasta que se cumplan plenamente los términos de la Fracción I del Artículo 60 de esta Ley, a partir de la fecha en que se crea el Organismo, el Instituto asumirá esta responsabilidad.
 ARTICULO 4o.- Las pensiones concedidas a la fecha de entrar en vigor esta Ley, se seguirán pagando con cargo al patrimonio del Instituto y quienes estén recibiendo dichas pensiones se reconocen como derechohabientes de acuerdo al Artículo 4 Fracción III.
 ARTICULO 5o.- Las personas que en el momento de entrar en vigor esta Ley estén disfrutando de una pensión según las disposiciones de la Ley de Pensiones que se deroga, están obligadas a contribuir con un 6% sobre sus percepciones y se regirán por las disposiciones del Capítulo respectivo.
 (ADICIONADO, P.O. 30 DE JUNIO DE 2005)
@@ -11,3 +12,4 @@ ARTICULO 7o.- Los funcionarios del Instituto, que vinieran desempeñando un dive
 Dado en el Palacio del Poder Legislativo del Estado; en Campeche el veintinueve de mayo de mil novecientos ochenta y siete.- "AÑO DE DON PEDRO SAINZ DE BARANDA Y BORREYRO".- DR. FERNANDO TREJO MONTES DE OCA, D. P.- PROFRA. MIREYA PEREZ DOMINGUEZ, D. S.- CESAR AVILES HERRERA, D. S.- Rúbricas.
 Por tanto mando se imprima, publique y circule, para su debido cumplimiento.
 Dado en el Edificio de los Poderes del Estado, en Campeche, a los veintinueve días del mes de mayo de mil novecientos ochenta y siete.- El Gobernador Constitucional del Estado, ABELARDO CARRILLO ZAVALA.- El Secretario de Gobierno, LIC. LUIS ROBERTO SILVA PEREZ.- El Oficial Mayor, LIC. MANUEL FLORES HERNANDEZ.- Rúbricas.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
