@@ -1,0 +1,1 @@
+Artículo Cuarto.- Se concede a las personas físicas y morales un plazo de 180 días, contados a partir de la entrada en vigor de esta Ley, para que satisfagan los requisitos de existencia, adecuen su reglamentación interna y soliciten su registro.

@@ -1,0 +1,4 @@
+Artículo Quinto.- Se derogan todas las disposiciones legales y administrativas que se opongan a la presente Ley.
+Salón de Sesiones del Palacio Legislativo, Campeche, Cam., a 23 de junio de 1998.- Dip. Manuel J. Angulo Romero, Presidente del H. Congreso del Estado.- Dip. Laura L. Escalante Canto, Secretaria.- Dip. Fernando Almeyda Cobos, Secretario.- Rúbricas.
+En cumplimiento de lo dispuesto por los artículos 48, 49 y 71 fracción XVIII de la Constitución Política del Estado, lo sanciono, mando se imprima, publique y circule para su debida observancia.
+Dado en el Palacio de Gobierno del Estado, en Campeche, a los veintitrés días del mes de junio del año de mil novecientos noventa y ocho.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO, L.A. JOSE ANTONIO GONZALEZ CURI.- EL SECRETARIO DE GOBIERNO, LIC. RICARDO A. OCAMPO FERNANDEZ..- RUBRICAS.
