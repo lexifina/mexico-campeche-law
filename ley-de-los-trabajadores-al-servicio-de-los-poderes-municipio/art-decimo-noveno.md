@@ -24,7 +24,8 @@ ARTICULO TRIGESIMO SEXTO.- IRREDUCTIBILIDAD.- El sueldo establecido en el contra
 ARTICULO TRIGESIMO SEPTIMO.- UNIFORMIDAD.- El sueldo será uniforme para cada una de las categorías de trabajadores de base.
 ARTICULO TRIGESIMO OCTAVO.- AUMENTOS PERIODICOS.- De ser posible se otorgarán aumentos de salario por años de servicio, de conformidad con la capacidad económica del Estado.
 ARTICULO TRIGESIMO NOVENO.- LUGAR DE PAGO.- Los pagos de sueldos se harán precisamente en el lugar de prestación de servicio del trabajador, en moneda del curso legal o mediante cheque.
-ARTICULO CUADRAGESIMO.- AGUINALDO.- Se pagará a los trabajadores entre el 15 y el 20 de Diciembre un aguinaldo anual equivalente al importe de 15 días de salarios. El que no tenga un año de servicios recibirá la parte proporcional al tiempo trabajado.
+(REFORMADO, P.O. 28 DE DICIEMBRE DE 1984)
+ARTICULO CUADRAGESIMO.- AGUINALDO.- Se pagará a los trabajadores entre el 15 y el 20 de diciembre un aguinaldo anual equivalente al importe de 45 días de salarios. El que no tenga un año de servidos recibirá parte proporcional al tiempo trabajado.
 ARTICULO CUADRAGESIMO PRIMERO.- Los plazos para el pago de sueldo no serán mayores de 15 días.
 ARTICULO CUADRAGESIMO SEGUNDO.- RETENCION DE SUELDOS.- El sueldo de un trabajador no será objeto de retención, descuentos o reducciones, salvo en los casos de:
 I.- Deudas frente a las Entidades Publicas por anticipo de sueldos, pagos en exceso de este, errores o pérdidas debidamente comprobados;
