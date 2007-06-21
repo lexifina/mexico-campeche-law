@@ -6,3 +6,4 @@ TRANSITORIOS
 Dado en el Palacio del Poder Legislativo del Estado, en Campeche, a los trece días del mes de Junio del año de mil novecientos sesenta y siete.- CARLOS CANO CRUZ, D.P.- RAFAELA ELIZABETH PAT DE CH., D.S.- PROFR. ISMAEL ESTRADA CUEVAS, D.S.- Rúbricas.
 Por tanto mando se imprima, publique y circule, para su debido cumplimiento.
 Dado en el Edificio de los Poderes del Estado, en Campeche, a los trece días del mes de Junio del año de mil novecientos sesenta y siete. El Gobernador Constitucional del Estado, LIC. JOSE ORTIZ AVILA.- El Secretario General de Gobierno, ING. RICARDO CASTILLO OLIVER. Rúbricas.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
