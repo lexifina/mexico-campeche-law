@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 4 DE JULIO DE 2007)
+Artículo 38 bis-1.- El gobierno del Estado, en coordinación con las dependencias de la administración pública federal y municipal, en los términos de los convenios que se celebren, y con la participación de los pueblos y comunidades indígenas, vigilará que estos programas sean ecológicamente sustentables, técnicamente apropiados y jurídicamente compatibles con la libre determinación de los pueblos y comunidades indígenas, para impulsar y garantizar la preservación y usufructo de sus recursos naturales.

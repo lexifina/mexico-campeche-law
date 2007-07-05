@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 4 DE JULIO DE 2007)
+Artículo 38 bis-2.- Los pueblos y comunidades indígenas del Estado, tienen atribución para implementar acciones de vigilancia dirigidas a la conservación y protección de sus recursos naturales, flora y fauna silvestre, dentro de sus comunidades y de aplicar sanciones conforme a sus sistemas normativos internos, complementariamente a las que señalen las leyes vigentes. Por lo que el Estado reconocerá, apoyará y validará su observancia.
