@@ -1,0 +1,4 @@
+ARTICULO ÚNICO.- se expide la:
+LEY DE LA INFRAESTRUCTURA·FÍSICA EDUCATIVA DEL·ESTADO DE CAMPECHE
+Capítulo I
+Disposiciones Generales
