@@ -7,3 +7,4 @@ C. Juan José Boeta Tous. Diputado Presidente.- C. Vicente Castellot Castro. Dip
 En cumplimiento de lo dispuesto por los artículos 48, 49 y 71 fracción XVIII de la Constitución Política del Estado, lo sanciono, mando se imprima, publique y circule para su debida observancia.
 Dado en el Palacio de Gobierno del Estado, en Campeche, a los Dos Días del Mes de Mayo del año Dos Mil Dos.-
 EL GOBERNADOR CONSTITUCIONAL DEL ESTADO, L.A. JOSE ANTONIO GONZALEZ CURI.- EL SECRETARIO DE GOBIERNO,- LIC. CARLOS FELIPE ORTEGA RUBIO.- RUBRICAS.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
