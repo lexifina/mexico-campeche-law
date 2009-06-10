@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- Se abroga la Ley del Notariado para el Estado de Campeche, expedida el 18 de septiembre del 2000, mediante Decreto Número 336, de la LVI Legislatura del Congreso del Estado de Campeche, publicada el 19 de ese mismo mes y año en el Periódico Oficial del Estado.
