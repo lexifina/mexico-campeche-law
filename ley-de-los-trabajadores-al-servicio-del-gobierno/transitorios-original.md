@@ -6,3 +6,4 @@ CUARTO.- PARA LOS EFECTOS A QUE SE CONTRAE EL TRANSITORIO ANTERIOR, LA SECRETARI
 Palacio Legislativo, Campeche, Cam., a 23 de abril de 1996.- Dip. Adolfo Cab Poot, Presidente de la Directiva en turno del H. Congreso del Estado.- Dip. Vicente Castellot Castro, Secretario.- Dip. Aracely Escalante Jasso, Secretaria.- Rúbricas.
 En cumplimiento de lo dispuesto por los artículos 48, 49 y 71 fracción XVIII de la Constitución Política del Estado, lo sanciono, mando se imprima, publique y circule para su debida observancia.
 Dado en el Palacio de Gobierno del Estado, en Campeche, a los veintitrés días del mes de abril de mil novecientos noventa y seis.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO, ING. JORGE SALOMON AZAR GARCIA.- EL SECRETARIO DE GOBIERNO, LIC. FERNANDO RAFFUL.- RUBRICAS.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.

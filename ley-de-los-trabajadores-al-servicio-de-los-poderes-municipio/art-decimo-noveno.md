@@ -9,6 +9,8 @@ ARTICULO VIGESIMO TERCERO.- JORNADA DE TRABAJO.- Se denomina así el lapso duran
 ARTICULO VIGESIMO CUARTO.- TRABAJO DIURNO.- Es el comprendido entre las seis y veinte horas; su duración máxima es de 8 horas.
 ARTICULO VIGESIMO QUINTO.- TRABAJO NOCTURNO.- Es el comprendido entre las veinte y las seis horas; su duración máxima es de 7 horas.
 ARTICULO VIGESIMO SEXTO.- TRABAJO MIXTO.- Es el integrado por periodos incluidos en los lapsos mencionados en los dos artículos precedentes, siempre que el nocturno no abarque más de 3 horas y media. Caso contrario, el trabajo se reputará nocturno su duración máxima es de 7 horas.
+(ADICIONADO, P.O. 16 DE JULIO DE 2009)
+ARTICULO VIGESIMO SEXTO-BIS.- TRABAJO CONTINUO.- En caso de las mujeres que sean madres trabajadoras, quedan exceptuadas del trabajo mixto, por lo que ejercerán sus funciones de trabajo en horario diurno o nocturno, siempre que las condiciones laborales así lo permitan, de manera que cuenten con tiempo para la adecuada atención y formación de sus hijos menores en el hogar.
 ARTICULO VIGESIMO SEPTIMO.- EXCEPCION.- La jornada máxima se reducirá cuando la naturaleza del trabajado lo exija, para no quebrantar la salud media de un individuo normal.
 ARTICULO VIGESIMO OCTAVO.- TRABAJO EXTRAORDINARIO.- Todo aumento en la jornada de trabajo será considerado como tiempo extraordinario, que nunca podrá exceder de 3 horas diarias ni exigirse por más de 3 veces consecutivas.
 ARTICULO VIGESIMO NOVENO.- DIA DE DESCANSO.- Por cada seis días de trabajo, el trabajador disfrutara de un día de descanso, con goce de sueldo integro, procurándose que sea el domingo.
