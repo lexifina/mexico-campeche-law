@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO.- Se ratifican los Convenios de Colaboración Administrativa en materia Hacendaria de Ingresos, celebrados durante la vigencia de la Ley que este Decreto abroga por el Estado con los Municipios, para que éstos efectúen la administración del Impuesto Sobre Nóminas que ellos mismos causen.

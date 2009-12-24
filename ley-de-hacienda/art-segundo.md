@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- Se abroga la Ley de Hacienda del Estado de Campeche, publicada en el Periódico Oficial del Estado el 21 de diciembre de 2006, así como todos aquellos decretos que en su oportunidad la modificaron y se derogan todas las demás disposiciones legales, reglamentarias y administrativas de carácter general en lo que se opongan al contenido del presente decreto.
