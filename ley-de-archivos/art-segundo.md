@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- Se abroga el decreto número 329, de la LV Legislatura del Congreso del Estado, por el que se expidió la Ley del Archivo General del Estado de Campeche, publicado en el Periódico Oficial del Estado el 13 de agosto de 1997.
