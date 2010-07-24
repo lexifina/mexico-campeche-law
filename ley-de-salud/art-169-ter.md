@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 23 DE JULIO DE 2010)
+Artículo 169 ter.- Las acciones en materia de prevención del consumo de narcóticos, la atención a las adicciones y la persecución de los delitos contra la salud que se realicen en el Estado se fundamentarán en la Ley General, en especial, en los términos del artículo 474 de dicho ordenamiento federal con la concurrencia de las autoridades federales, en esta Ley, y en la legislación penal del Estado.
