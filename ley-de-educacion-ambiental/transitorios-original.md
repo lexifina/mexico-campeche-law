@@ -6,3 +6,4 @@ Dado en el Salón de Sesiones del Palacio Legislativo, en la ciudad de San Franc
 C. María del Carmen Pérez López, Diputada Presidenta.- C. Giacomina María Merino Capelline, Diputada Secretaria.- C. Nelly del Carmen Márquez Zapata, Diputada Secretaria.- Rúbricas.
 En cumplimiento de lo dispuesto por los artículos 48, 49 y 71 fracción XVIII de la Constitución Política del Estado, lo sanciono, mando se imprima, publique y circule para su debida observancia.
 Dado en el Palacio de Gobierno del Estado, en San Francisco de Campeche, Campeche, a los diecinueve días del mes de diciembre del año dos mil ocho.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO, C.P. JORGE CARLOS HURTADO VALDEZ.- EL SECRETARIO DE GOBIERNO, M. en D. RICARDO MEDINA FARFAN.- Rúbricas.
+N. DE E.: A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.
