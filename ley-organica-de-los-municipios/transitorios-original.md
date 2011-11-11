@@ -10,3 +10,4 @@ OCTAVO.- Las concesiones otorgadas para la prestación de servicios públicos mu
 NOVENO.- Los cuerpos de seguridad pública municipal constituidos conforme a la ley que se abroga, ajustarán su denominación, organización y funcionamiento a lo previsto en la presente Ley y a las disposiciones aplicables al ámbito municipal de la ley en materia de seguridad pública.
 DÉCIMO.- Los Ayuntamientos dispondrán de un plazo de seis meses contados a partir de la fecha en que entre en vigor la presente ley para ajustar conforme a ella sus bandos municipales y los reglamentos municipales.
 Dado en el Salón de Sesiones del Palacio Legislativo, en la ciudad de San Francisco de Campeche, Campeche, a los diecinueve días del mes de febrero del año dos mil ocho.
+N. DE E.: A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMA AL PRESENTE ORDENAMIENTO.
