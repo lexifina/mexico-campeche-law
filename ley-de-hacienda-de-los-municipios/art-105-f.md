@@ -1,2 +1,0 @@
-(ADICIONADO, P.O. 26 DE DICIEMBRE DE 1995)
-ARTICULO 105 F.- Las autoridades municipales regularán en sus reglamentos respectivos o mediante disposiciones de carácter general, los requisitos para la obtención de las licencias, permisos o autorizaciones de anuncios, carteles o publicidad; así como sus características, dimensiones y espacios en que se fijen o instalen, el procedimiento para su colocación y los materiales, estructuras, soportes y sistemas de iluminación que se utilicen en su construcción y su vigencia.
