@@ -6,4 +6,4 @@ Cuarto.- El Ejecutivo del Estado, a través de la Secretaría de Educación, Cul
 Salón de Sesiones del Palacio Legislativo, Campeche, Cam., a 13 de junio del 2000.- Dip. Fernando Almeyda Cobos, Presidente.- Dip. Román Rejón Castro, Secretario.- Dip. José Antonio Mena Muñoz, Secretario.- Rúbricas.
 En cumplimiento de lo dispuesto por los artículos 48, 49 y 71 fracción XVIII de la Constitución Política del Estado, lo sanciono, mando se imprima, publique y circule para su debida observancia.
 Dado en el Palacio de Gobierno del Estado, en Campeche, a los catorce días del mes de junio del año dos mil.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO, LA. JOSE ANTONIO GONZALEZ CURI.- EL SECRETARIO DE GOBIERNO, LIC. CARLOS FELIPE ORTEGA RUBIO.- RUBRICAS.
-N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.
