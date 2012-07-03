@@ -7,3 +7,4 @@ Dado en el Salón de Sesiones del Palacio Legislativo, en la ciudad de San Franc
 C. CARLOS FELIPE ORTEGA RUBIO, DIPUTADO PRESIDENTE.- C. JOSÉ ANTONIO RODRÍGUEZ RODRÍGUEZ, DIPUTADO SECRETARIO.- C. GASPAR ALBERTO CUTZ CAN, DIPUTADO SECRETARIO.- RÚBRICAS
 En cumplimiento de los dispuesto por los artículos 48, 49 y 71 fracción XVIII de la Constitución Política del Estado, los sanciono, mando se imprima, publique y circule para su debida observancia.
 Dado en el Palacio de Gobierno, en San Francisco de Campeche, Campeche, a los tres días del mes de marzo del año dos mil siete.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO, C.P. JORGE CALOS HURTADO VALDEZ.- EL SECRETARIO DE GOBIERNO, M. en D. RICARDO MEDINA FARFAN.- RUBRICAS.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.
