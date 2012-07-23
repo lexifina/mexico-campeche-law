@@ -1,4 +1,5 @@
 LEY DEL EQUILIBRIO ECOLÓGICO Y PROTECCIÓN AL AMBIENTE DEL ESTADO DE CAMPECHE
+N. DE E. DE CONFORMIDAD CON LO DISPUESTO EN EL ARTÍCULO CUARTO TRANSITORIO DEL DECRETO NÚMERO 235, POR EL CUAL SE EXPIDE EL CÓDIGO PENAL DEL ESTADO DE CAMPECHE, PUBLICADO EN EL P.O. DE 20 DE JULIO DE 2012, SE DEROGAN LOS TIPOS PENALES CONTENIDOS EN LA LEY DE EQUILIBRIO ECOLÓGICO Y PROTECCIÓN AL AMBIENTE DEL ESTADO DE CAMPECHE.
 Ley publicada en el Periódico Oficial del Estado de Campeche, el miércoles 22 de junio de 1994.
 JORGE SALOMON AZAR GARCIA, Gobernador Constitucional del Estado Libre y Soberano de Campeche, a sus habitantes, sabed:
 Que el H. Congreso Constitucional del Estado Libre y Soberano de Campeche, me ha dirigido el siguiente:
