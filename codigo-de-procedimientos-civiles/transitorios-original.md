@@ -6,4 +6,4 @@ Artículo 4º.- Desde el día en que se ponga en vigor este Código, quedan abro
 Dado en el Palacio del Poder Legislativo del Estado, en Campeche, a los veintidós días del mes de diciembre del año de mil novecientos cuarenta y dos.- Vicente Guerrero Glory, D. P.- Felipe Vázquez Durán, D. S.- Álvaro Artiñano Aguilar, D. S.- Rúbricas.
 Por tanto mando se imprima, publique y circule para su debido cumplimiento.
 Dado en el Palacio del Poder Ejecutivo del Estado, en Campeche, a los veintitrés días del mes de diciembre del año de mil novecientos cuarenta y dos.- El Gobernador Constitucional del Estado, Dr. Héctor Pérez Martínez.- El Secretario General de Gobierno Interino, Lic. Francisco Alvarez Barret.- Rúbricas.
-N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE CODIGO.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.
