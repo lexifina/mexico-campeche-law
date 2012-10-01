@@ -1,0 +1,1 @@
+ARTICULO PRIMERO.- Se aprueba (o No es de aprobarse) la minuta proyecto de decreto de (reformas, derogaciones o adiciones) a la Constitución Política de los Estados Unidos Mexicanos, enviada por la Cámara de (Diputados o Senadores) del H. Congreso General de los Estados Unidos Mexicanos, cuyo tenor literal es el siguiente:
