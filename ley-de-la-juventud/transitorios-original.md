@@ -5,4 +5,5 @@ Tercero.- Se derogan las disposiciones legales y reglamentarias del Estado en lo
 Dado en el Salón de Sesiones del Palacio Legislativo, en la ciudad de San Francisco de Campeche, Campeche, a los treinta días del mes de junio del año dos mil once.
 C. Fernando Chan Chi, Diputado Presidente.- C. Rocío Adriana Abreu Artiñano, Diputada Secretaria.- C. Lourdes de los A. Solís Sierra, Diputada Secretaria.- Rúbricas.-
 En cumplimiento de lo dispuesto por los artículos 48, 49 y 71 fracción XVIII de la Constitución Política del Estado, lo sanciono, mando se imprima, publique y circule para su debida observancia.
-Dado en el Palacio de Gobierno del Estado, en San Francisco de Campeche, Campeche, el primer día del mes de Julio del año dos mil once. EL GOBERNADOR CONSTlTUCIONAL DEL ESTADO, LIC. FERNANDO EUTlMIO ORTEGA BERNES.- EL SECRETARIO DE GOBIERNO, LIC. WlLLlAM ROBERTO SARMIENTO URBINA.- RUBRICAS.
+Dado en el Palacio de Gobierno del Estado, en San Francisco de Campeche, Campeche, el primer día del mes de Julio del año dos mil once. EL GOBERNADOR CONSTlTUCIONAL DEL ESTADO, LIC. FERNANDO EUTIMIO ORTEGA BERNES.- EL SECRETARIO DE GOBIERNO, LIC. WILLIAM ROBERTO SARMIENTO URBINA.- RUBRICAS.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.
