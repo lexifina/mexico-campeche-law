@@ -5,4 +5,4 @@ Tercero.- Se faculta al Ejecutivo del Estado para expedir las normas reglamentar
 Salón de Sesiones del Palacio Legislativo, Campeche, Cam., a 4 de abril del 2000.- Dip. Salvador Gaspar Arteaga Trillo, Presidente.- Dip. Laura L. Escalante Canto, Secretaria.- Dip. José Antonio Mena Muñoz, Secretario.- Rúbricas.
 En cumplimiento de lo dispuesto por los artículos 48, 49 y 71 fracción XVIII de la Constitución Política del Estado, lo sanciono, mando se imprima, publique y circule para su debida observancia.
 Dado en el Palacio de Gobierno del Estado, en Campeche a los cuatro días del mes de abril del año dos mil.- El Gobernador Constitucional del Estado, L.A. José Antonio González Curi.- El Secretario de Gobierno, Lic. Carlos Felipe Ortega Rubio.- Rúbricas.
-N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
