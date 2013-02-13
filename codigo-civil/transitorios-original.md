@@ -11,4 +11,4 @@ Art. 9º.- Desde que empiece a regir este Código, quedarán abrogadas todas las
 Dado en el Palacio del Poder Legislativo del Estado, en Campeche, a los trece días del mes de octubre del año de mil novecientos cuarenta y dos.- Juan Loeza Matos, D. P.- Álvaro Artiñano Aguilar, D. S.- Nicanor Cuc, D. S.- Rúbricas.
 Por tanto mando se imprima, publique y circule para su debido cumplimiento.
 Dado en el Palacio del Poder Ejecutivo del Estado, en Campeche, a los trece días del mes de octubre del año de mil novecientos cuarenta y dos.- El Gobernador Constitucional del Estado, Dr. Héctor Pérez Martínez.- El Secretario General de Gobierno Interino, Lic. Francisco Alvarez Barret.- Rúbricas.
-N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE CODIGO.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE CÓDIGO.
