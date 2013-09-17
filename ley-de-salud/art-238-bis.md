@@ -1,0 +1,4 @@
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
+(ADICIONADO, P.O. 2 DE SEPTIEMBRE DE 2013)
+Artículo 238 bis.- Que los sectores social y privado podrán prestar los servicios de tratamiento y rehabilitación de adictos, para lo cual deberán tramitar la autorización y el registro de funcionamiento de los centros ante la Secretaría de Salud, cumpliendo con la normatividad que al efecto emita.
+Los Centros de Rehabilitación de Adicciones, públicos y privados, deberán contar con personal profesional para la atención de las adicciones, reuniendo la capacidad necesaria para prestar los servicios de rehabilitación. La Secretaría expedirá la reglamentación que determine las características profesionales o técnicas que el personal de los centros debe reunir para cumplir con sus funciones.
