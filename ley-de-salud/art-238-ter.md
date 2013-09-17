@@ -1,6 +1,6 @@
 N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
 (ADICIONADO, P.O. 2 DE SEPTIEMBRE DE 2013)
-Articulo 238 ter. Para operar un Centro de Rehabilitación de Adicciones en el Estado, independientemente de lo que prescriban la Ley General de Salud y la Norma Oficial Mexicana para la prevención, tratamiento y control de las adicciones deberán de cumplir con los siguientes requisitos:
+Artículo 238 ter. Para operar un Centro de Rehabilitación de Adicciones en el Estado, independientemente de lo que prescriban la Ley General de Salud y la Norma Oficial Mexicana para la prevención, tratamiento y control de las adicciones deberán de cumplir con los siguientes requisitos:
 I. Contar con autorización de funcionamiento de la Secretaría;
 II. Coadyuvar con el personal de la Secretaría para verificar el cumplimiento de las disposiciones relativas contenidas en la presente Ley;
 III. Contar con un Coordinador y un Secretario Técnico acreditados ante la Secretaría;
