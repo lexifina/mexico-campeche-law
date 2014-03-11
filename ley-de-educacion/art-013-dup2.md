@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 10 DE MARZO DE 2014)
+Artículo 13-II.- El ayuntamiento de cada municipio podrá, sin perjuicio de la concurrencia de las autoridades educativas federal y estatal, promover y prestar servicios educativos de cualquier tipo o modalidad; asimismo podrá realizar actividades de las enumeradas en las fracciones V a VIII del artículo 14 de la Ley General de Educación de conformidad con lo establecido en el artículo 15 de la Ley General de Educación.

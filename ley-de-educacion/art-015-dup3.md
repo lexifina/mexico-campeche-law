@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 10 DE MARZO DE 2014)
+Artículo 15-III.- Los cambios de adscripción, licencias, derechos, obligaciones y sanciones del personal docente y con funciones de dirección y de supervisión de la educación básica y media superior se llevarán a cabo conforme a lo establecido en el Capítulo II del Título IV y en el Título V de la Ley General del Servicio Profesional Docente, conforme corresponda.
