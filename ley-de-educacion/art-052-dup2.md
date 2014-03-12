@@ -4,8 +4,10 @@ Artículo 52-II.- Será responsabilidad de la autoridad de cada escuela pública
 La autoridad escolar hará lo conducente para que en cada escuela pública de educación básica opere un consejo escolar de participación social, integrado con padres de familia y representantes de sus asociaciones, maestros y representantes de su organización sindical, quienes acudirán como representantes de los intereses laborales de los trabajadores, directivos de la escuela, exalumnos, así como con los demás miembros de la comunidad interesados en el desarrollo de la propia escuela.
 (REFORMADO, P.O. 10 DE MARZO DE 2014)
 Este consejo:
-a) Conocerá el calendario escolar, las metas educativas y el avance de las actividades escolares con el objeto dé coadyuvar con el maestro a su mejor realización;
-b) Conocerá y dará seguimiento de las acciones que realicen las y los educadores y autoridades educativas señaladas en el segundo párrafo del artículo 42 de la presente ley;
+(F. DE E., P.O. 12 DE MARZO DE 2014)
+a) Conocerá el calendario escolar, las metas educativas y el avance de las actividades escolares, con el objeto de coadyuvar con el maestro a su mejor realización;
+(F. DE E., P.O. 12 DE MARZO DE 2014)
+b) Conocerá y dará seguimiento de las acciones que realicen las y los educadores y autoridades educativas señaladas en el penúltimo párrafo del artículo 19 de la presente ley;
 c) Conocerá de las acciones educativas y de prevención que realicen las autoridades para que los educandos conozcan y detecten la posible comisión de hechos delictivos que puedan perjudicar al educando;
 d) Sensibilizará a la comunidad, mediante la divulgación de material que prevenga la comisión de delitos en agravio de las y los educandos. Así como también, de elementos que procuren la defensa de los derechos de las víctimas de tales delitos;
 e) Tomará nota de los resultados de las evaluaciones que realicen las autoridades educativas;
