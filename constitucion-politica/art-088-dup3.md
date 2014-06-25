@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 24 DE JUNIO DE 2014)
+ARTICULO 88.2.- La Autoridad Electoral Jurisdiccional del Estado de Campeche estará conformada por tres Magistrados, los cuales actuarán en forma colegiada y permanecerán en su encargo siete años. Uno de ellos será el Presidente del órgano, el cual será designado bajo las reglas dispuestas por las leyes, general y local, en la materia.
+Los Magistrados electorales serán electos por la Cámara de Senadores conforme a los requisitos y reglas de elección establecidas en la Constitución Política de los Estados Unidos Mexicanos así como en la ley general correspondiente.
