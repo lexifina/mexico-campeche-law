@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 24 DE JUNIO DE 2014)
+Art. 80 bis.- El derecho de iniciar leyes compete a los ciudadanos en un número equivalente a cuando menos el cero punto trece por ciento de la lista nominal de lectores (sic) de la entidad, de conformidad con el artículo 46 fracción VI de la Constitución Política del Estado de Campeche. Los ciudadanos podrán presentar proyectos de iniciativas respecto de las materias de competencia del Congreso del Estado.
+Las iniciativas ciudadanas seguirán el procedimiento legislativo dispuesto por esta Ley una vez que el Instituto Electoral del Estado comunique el cumplimiento de lo dispuesto por la Constitución Política del Estado de Campeche, en los términos que establece el presente capítulo.

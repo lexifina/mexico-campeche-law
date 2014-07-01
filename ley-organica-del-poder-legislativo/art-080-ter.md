@@ -1,0 +1,7 @@
+(ADICIONADO, P.O. 24 DE JUNIO DE 2014)
+Art. 80 ter.- La iniciativa ciudadana deberá cumplir con los siguientes requisitos:
+I.- Presentarse por escrito ante el Presidente de la Mesa Directiva, y en sus recesos, ante el Presidente de la Diputación Permanente.
+II. Contener los nombres completos de los ciudadanos, clave de elector o el número identificador al reverso de la credencial de elector derivado del reconocimiento óptico de caracteres (OCR) de la credencial para votar vigente y su firma. En caso de advertirse error en la identificación del ciudadano, siempre y cuando éste sea menor al veinte por ciento del total requerido, el Instituto Electoral del Estado de Campeche prevendrá a los promoventes para que subsanen el error antes de que concluya el período ordinario de sesiones, y deberá informar de ello al presidente de la Mesa Directiva. Si los promoventes no subsanan el error en el plazo establecido, se tendrá por desistida la iniciativa;
+III. Nombre completo y domicilio del representante para oír y recibir notificaciones, y
+IV. Toda la documentación deberá estar plenamente identificada, señalando en la parte superior de cada hoja el nombre del proyecto de decreto que se propone someter.
+Cuando la iniciativa no cumpla con los requisitos señalados en las fracciones I, III o IV de este artículo, el Presidente de la Mesa Directiva prevendrá a los promoventes para que subsanen los errores u omisiones en un plazo de quince días hábiles a partir de la notificación. En caso de no subsanarse en el plazo establecido se tendrá por no presentada.
