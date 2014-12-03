@@ -1,0 +1,6 @@
+LEY ORGÁNICA DE LA FISCALÍA GENERAL DEL ESTADO DE CAMPECHE
+Ley publicada en la Segunda Sección del Periódico Oficial del Estado de Campeche, el lunes 1 de diciembre de 2014.
+D E C R E T O
+La LXI Legislatura del Congreso del Estado de Campeche decreta:
+Número 185
+LEY ORGÁNICA DE LA FISCALÍA GENERAL DEL ESTADO DE CAMPECHE
