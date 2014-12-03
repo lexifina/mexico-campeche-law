@@ -1,0 +1,6 @@
+LEY DE DEFENSORÍA PÚBLICA Y ASISTENCIA JURÍDICA GRATUITA DEL ESTADO DE CAMPECHE
+N. DE E. DE CONFORMIDAD CON EL ARTÍCULO PRIMERO TRANSITORIO, EL PRESENTE ORDENAMIENTO ENTRA EN VIGOR EL DÍA 3 DE DICIEMBRE DE 2014.
+Ley publicada en el Periódico Oficial del Estado de Campeche, el jueves 2 de octubre de 2014.
+D E C R E T O
+La LXI Legislatura del Congreso del Estado de Campeche decreta:
+NÚMERO 167
