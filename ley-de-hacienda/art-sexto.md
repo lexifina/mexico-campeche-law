@@ -1,1 +1,2 @@
-ARTÍCULO SEXTO.- Los sujetos del Impuesto Estatal Sobre Tenencia o Uso de Vehículos, deberán de registrarse o, regularizarse en términos de la Ley de Vialidad, Tránsito y Control Vehicular del Estado de Campeche y su Reglamento, así como ante la Secretaría de Finanzas para efectos del Registro Estatal Vehicular.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
+ARTÍCULO SEXTO.- (DEROGADO, P.O. 20 DE NOVIEMBRE DE 2015)

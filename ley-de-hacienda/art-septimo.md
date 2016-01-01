@@ -1,1 +1,2 @@
-ARTÍCULO SÉPTIMO.- Para efectos de esta Ley se entenderá que la tarifa a que hace referencia la fracción I del artículo 45 de esta ley se encuentra actualizada al 31 de diciembre del 2009.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
+ARTÍCULO SÉPTIMO.- (DEROGADO, P.O. 20 DE NOVIEMBRE DE 2015)

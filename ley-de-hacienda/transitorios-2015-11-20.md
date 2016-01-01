@@ -1,0 +1,5 @@
+P.O. 20 DE NOVIEMBRE DE 2015.
+PRIMERO.- El presente decreto entrará en vigor el día primero de enero del año 2016, previa su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- La determinación y los pagos del Impuesto Sobre Tenencia o Uso de Vehículos de carácter federal correspondiente a ejercicios fiscales de 2009 y anteriores, se realizarán conforme a las disposiciones jurídicas vigentes en el ejercicio fiscal correspondiente, y atenderán en su caso, a las reglas legales de prescripción y caducidad.
+TERCERO.- La determinación y los pagos del Impuesto Sobre Tenencia o Uso de Vehículos de carácter estatal correspondiente a ejercicios fiscales de 2015 y anteriores, se realizarán conforme a las disposiciones jurídicas vigentes en el ejercicio fiscal correspondiente atendiendo, en su caso, a las reglas legales de prescripción y caducidad.
+CUARTO.- Se derogan todas las disposiciones legales o reglamentarias de igual o menor jerarquía del marco jurídico estatal, en lo que se opongan al contenido del presente decreto.
