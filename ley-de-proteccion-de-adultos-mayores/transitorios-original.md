@@ -7,3 +7,4 @@ Dado en el Salón de Sesiones del Palacio Legislativo, en la ciudad de Campeche,
 C. Dulce M. Cervera Cetina, Diputada Presidenta.- C. Róger Pérez Hernández, Diputado Secretario.- C. Manuel A. Richaud Lara, Diputado Secretario.- Rúbricas.
 En cumplimiento de lo dispuesto por los artículos 48, 49 y 71 fracción XVIII de la Constitución Política del Estado, lo sanciono, mando se imprima, publique y circule para su debida observancia.
 Dado en el Palacio de Gobierno del Estado, en Campeche, a los diez días del mes de junio del año dos mil cinco.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO, C.P. JORGE CARLOS HURTADO VALDEZ.- EL SECRETARIO DE GOBIERNO, LIC. CARLOS FELIPE ORTEGA RUBIO.- RUBRICAS.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.

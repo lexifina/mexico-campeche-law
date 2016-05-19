@@ -1,0 +1,4 @@
+P.O. 16 DE MAYO DE 2016.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 54 POR EL QUE "SE REFORMAN LOS ARTÍCULOS 2, 36 FRACCIÓN I, 109, 110, 113, 114, 119, 123, 157, 158, 159, 167, 168, 170, 172, 179, 180, 183, 188, 189, 194, 200, 224, 230, 231, 232, 251, 255, 258, 259, 271, 281, 311, 320 BIS, 428, 456, 486, 512, 619, 638, 648 Y 743 FRACCIÓN I, TODOS DEL CÓDIGO CIVIL DEL ESTADO DE CAMPECHE" Y "SE DEROGAN LOS ARTÍCULOS 104,160, 161, 163, 164, 165, 166, 169, 171, 184, 192, 243, 252, 253, 254, 276, 277, 293, 457 FRACCIÓN II, 465, 653 Y 655 TODOS DEL CÓDIGO CIVIL DEL ESTADO DE CAMPECHE".]
+PRIMERO.- El presente decreto entrará en vigor tres días después de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Se derogan todas las disposiciones legales y reglamentarias del marco jurídico estatal en lo que se opongan al contenido de este decreto.

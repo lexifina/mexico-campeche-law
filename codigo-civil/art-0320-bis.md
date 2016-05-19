@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 3 DE MAYO DE 2005)
-Art. 320 Bis.- Los hijos mayores de edad, así como los emancipados, están obligados a dar alimentos a sus padres cuando éstos carezcan de recursos para su sustento y además, por su avanzada edad o por padecer alguna afección física o mental que los incapacite para trabajar, estén imposibilitados para obtenerlos por sí mismos. A falta o por imposibilidad de los hijos, lo están los descendientes más próximos en grado.
+(REFORMADO, P.O. 16 DE MAYO DE 2016)
+Art. 320 Bis.- Los hijos mayores de edad están obligados a dar alimentos a sus padres cuando éstos carezcan de recursos para su sustento y además, por su avanzada edad o por padecer alguna afección física o mental que los incapacite para trabajar, estén imposibilitados para obtenerlos por sí mismos. A falta o por imposibilidad de los hijos, lo están los descendientes más próximos en grado.
