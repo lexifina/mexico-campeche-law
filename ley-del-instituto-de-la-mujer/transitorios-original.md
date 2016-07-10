@@ -10,3 +10,4 @@ C. Fernando Enrique Razo Santiago, Diputado Presidente.- C. Jorge Antonio Cocón
 En cumplimiento de lo dispuesto por los artículos 48, 49 y 71 fracción XXVIII de la Constitución Política del Estado, lo sanciono, mando e imprima, publique y circule para su debida observancia.
 Dado en el Palacio de gobierno del Estado, en Campeche, el día cinco de julio del año dos mil cuatro.
 WEL GOBERNADOR CONSTITUCIONAL DEL ESTADO, C.P. JORGE CARLOS HURTADO VALDEZ.- EL SECRETARIO DE GOBIERNO, LIC. CARLOS FELIPE ORTEGA RUBIO.- RUBRICAS.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]

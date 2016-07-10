@@ -1,0 +1,3 @@
+P.O. 7 DE JULIO DE 2016.
+[N. DE E. TRANSITORIO DEL DECRETO NÚMERO 63 POR EL QUE "SE ADICIONA UNA FRACCIÓN VI Y UNA FRACCIÓN VII AL ARTÍCULO 41, Y UNA FRACCIÓN V AL ARTÍCULO 42 DE LA LEY DEL DEPORTE Y LA CULTURA FÍSICA PARA EL ESTADO DE CAMPECHE".]
+ÚNICO.- El presente decreto entrará en vigor a los diez días siguientes de su publicación en el Periódico Oficial del Estado.
