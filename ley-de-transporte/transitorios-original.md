@@ -15,3 +15,4 @@ C. CARLOS ERNESTO ROSADO RUELAS, DIPUTADO PRESIDENTE.- C. HUMBERTO JAVIER CASTRO
 En cumplimiento de lo dispuesto por los Artículos 48, 49 y 71 Fracción XVIII de la Constitución Política del Estado, lo sanciono, mando se imprima, publique y circule para su debida observancia.
 Dado en el Palacio del Gobierno del Estado, en San Francisco de Campeche, Campeche, a los seis días de junio del año dos mil ocho.
 EL GOBERNADOR CONSTITUCIONAL DEL ESTADO, C.P. JORGE CARLOS HURTADO VALDEZ.- EL SECRETARIO DE GOBIERNO, M. EN D. RICARDO MEDINA FARFAN. RÚBRICAS.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
