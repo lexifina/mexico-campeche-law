@@ -1,6 +1,6 @@
 N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, P.O. 13 DE DICIEMBRE DE 2012)
-ARTICULO 15 bis.- El Estado y los Municipios, en el ámbito de sus respectivas competencias, con el objeto de promover el cuidado y uso racional del agua, llevarán a cabo las siguientes acciones:
+ARTICULO 15 BIS.- El Estado y los Municipios, en el ámbito de sus respectivas competencias, con el objeto de promover el cuidado y uso racional del agua, llevarán a cabo las siguientes acciones:
 l. Difundir mediante programas los costos y beneficios socioeconómicos y ambientales del cuidado, uso racional y correcto aprovechamiento del agua;
 II. Fomentar el uso racional del agua en todas sus formas y manifestaciones;
 IlI. Promover planes y programas coordinados con las entidades públicas y privadas vinculadas con el uso racional y cuidado del agua;
