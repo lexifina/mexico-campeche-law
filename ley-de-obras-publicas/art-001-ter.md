@@ -1,0 +1,3 @@
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.]
+(ADICIONADO, P.O. 10 DE NOVIEMBRE DE 2016)
+ARTICULO 1o TER.- Las dependencias de la Administración Pública Estatal, los municipios y los organismos descentralizados garantizarán la accesibilidad de las personas con discapacidad a edificios, espacios públicos, así como en obra pública existente o por desarrollarse, asegurando el disfrute de sus derechos y eliminado (sic) cualquier forma de discriminación.
