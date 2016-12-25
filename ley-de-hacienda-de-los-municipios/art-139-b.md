@@ -1,2 +1,0 @@
-(ADICIONADO, P.O. 26 DE DICIEMBRE DE 2013)
-ARTÍCULO 139 B.- Una vez turnadas las infracciones a la Tesorería Municipal, éstas no podrán ser modificadas, salvo que el interesado compruebe su improcedencia a satisfacción, tanto del área que maneja la materia objeto de la misma, como de la Tesorería Municipal.
