@@ -12,3 +12,4 @@ FERNANDO EUTIMIO ORTEGA BERNES, Gobernador Constitucional del Estado Libre y Sob
 Que la LXI Legislatura del H. Congreso Constitucional del Estado Libre y Soberano de Campeche me ha dirigido el Decreto número 170, por lo que, en cumplimiento de lo dispuesto por los artículos 48, 49 y 71, fracción XVIII de la Constitución Política del Estado de Campeche, lo sanciono, mando se imprima, publique y circule para su debida observancia.
 Este Decreto es dado en el Palacio de Gobierno el Estado, en San Francisco de Campeche, municipio y Estado de Campeche, a los veintinueve días del mes de septiembre del año dos mil catorce.
 EL GOBERNADOR CONSTITUCIONAL DEL ESTADO, LIC. FERNANDO EUTIMIO ORTEGA BERNES.- EL SECRETARIO DE GOBIERNO, LIC. WILLIAM ROBERTO SARMIENTO URBINA.- Rúbricas.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
