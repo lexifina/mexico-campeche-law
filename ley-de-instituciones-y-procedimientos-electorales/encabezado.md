@@ -1,5 +1,4 @@
 LEY DE INSTITUCIONES Y PROCEDIMIENTOS ELECTORALES DEL ESTADO DE CAMPECHE
-N. DE E. CONTIENE LA FE DE ERRATAS PUBLICADA EN EL PERIÓDICO OFICIAL DEL 8 DE OCTUBRE DE 2014.
 Ley publicada en el Periódico Oficial del Estado de Campeche, el lunes 30 de junio de 2014.
 DECRETO
 La LXI Legislatura del Congreso del Estado de Campeche decreta:
