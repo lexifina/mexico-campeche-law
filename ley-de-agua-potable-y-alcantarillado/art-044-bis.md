@@ -1,4 +1,3 @@
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.]
 (ADICIONADO, P.O. 12 DE SEPTIEMBRE DE 2016)
 ARTICULO 44 BIS.- La Junta de Gobierno de la Comisión tendrá las siguientes atribuciones:
 I. Suscribir convenios de coordinación o concertación con autoridades de los tres niveles de gobierno, instituciones privadas y sociales y organismos internacionales que no sean facultad exclusiva del gobernador del Estado, para el impulso de programas y acciones que busquen el mejoramiento de los servicios de agua potable y alcantarillado en la Entidad;

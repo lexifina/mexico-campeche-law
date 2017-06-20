@@ -1,4 +1,3 @@
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.]
 (ADICIONADO, P.O. 12 DE SEPTIEMBRE DE 2016)
 ARTICULO 45 BIS.- Para que las sesiones de la Junta tengan validez, se requerirá la presencia de la mitad más uno de los integrantes y los acuerdos se tomarán por mayoría de votos. En caso de empate el presidente tendrá voto de calidad.
 La Junta por conducto de su presidente, podrá invitar a las sesiones que al efecto se celebren a autoridades del ámbito federal, estatal o municipal que guarden relación con el objeto de la Comisión, quienes únicamente tendrán derecho a voz.

@@ -1,0 +1,4 @@
+P.O. 5 DE JUNIO DE 2017.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 149 POR EL QUE "SE REFORMAN LOS ARTÍCULOS 3 PÁRRAFO SEGUNDO; 11 PÁRRAFO PRIMERO; 14 PÁRRAFO SEGUNDO; 25; 27 PÁRRAFO SEGUNDO; 29 PÁRRAFO SEGUNDO; 38 PÁRRAFO CUARTO; 50 PÁRRAFO SEGUNDO; 87 PÁRRAFO PRIMERO; 114 FRACCIONES XI, XV Y XVI Y 115 PÁRRAFO PRIMERO DE LA LEY DE AGUA POTABLE Y ALCANTARILLADO DEL ESTADO DE CAMPECHE".]
+PRIMERO.- El presente decreto entrará en vigor quince días después de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Se derogan las disposiciones legales y reglamentarias que se opongan al presente decreto.

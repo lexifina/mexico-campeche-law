@@ -1,1 +1,1 @@
-ARTICULO QUINTO.- TRABAJADORES SUPERNUMERARIOS.- Son aquellos que prestan sus servicios a una Entidad Publica en forma transitoria, eventual, por encargos o empleos no consignados en el Presupuesto de Egresos.
+ARTICULO QUINTO.- TRABAJADORES SUPERNUMERARIOS.- Son aquellos que prestan sus servicios a una Entidad Pública en forma transitoria, eventual, por encargos o empleos no consignados en el Presupuesto de Egresos.
