@@ -1,0 +1,10 @@
+(ADICIONADO, P.O. 13 DE JULIO DE 2017)
+ARTÍCULO 79-C.- En la aplicación de las cuotas de los derechos por servicios prestados por instituciones de salud pública a que refiere el artículo 79-D de esta Ley, deberán observarse los siguientes aspectos específicos:
+I. Las cuotas de recuperación que obtenga el Estado por los servicios públicos de salud serán destinadas para los programas y apoyos de asistencia médica y de rehabilitación en el Estado.
+II. Los servicios de salud y atención médica relacionados con programas de protección social en salud, se cobrarán conforme a los convenios o acuerdos que al efecto celebren el Ejecutivo Federal, Entidades Federativas y el Ejecutivo del Estado de Campeche.
+III. Los servicios de salud y atención médica que se presten derivados de los acuerdos o convenios que se celebren con otras instituciones, se sujetarán a las cuotas pactadas en los mismos.
+IV. Los ingresos que se obtengan por concepto de medicamentos y material de curación, se aplicarán en esos mismos rubros y en las unidades que los generen.
+V. El costo de los paquetes incluye el servicio, medicamentos y material de curación.
+VI. Los servicios de salud y atención médica que se presten a los internos derivados de los acuerdos o convenios que se celebren con la Secretaría de Seguridad Pública, se sujetarán a las cuotas pactadas en los mismos.
+VII. La recaudación de estas cuotas de recuperación se hará a través de las ventanillas de la Secretaría de Finanzas y se remitirá al Instituto de Servicios Descentralizados de Salud Pública para que, a su vez, otorgue lo que corresponda a la Administración de la Beneficencia Pública, conforme a lo establecido en su acuerdo de creación.
+VIII. El procedimiento y los tiempos para que la Secretaría de Finanzas remita lo recaudado por concepto de cuotas de recuperación se sujetará al convenio de Coordinación que celebren la Secretaría de Finanzas de la Administración Pública Estatal y el Instituto Descentralizado de Servicios de Salud Pública del Estado de Campeche.
