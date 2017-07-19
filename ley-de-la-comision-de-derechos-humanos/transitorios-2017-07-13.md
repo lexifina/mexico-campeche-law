@@ -1,0 +1,7 @@
+P.O. 13 DE JULIO DE 2017.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 180 POR EL QUE "SE REFORMAN LA DENOMINACIÓN DEL CAPÍTULO VI "DEL NOMBRAMIENTO Y FACULTADES DEL ÓRGANO INTERNO DE CONTROL" PARA QUEDAR COMO CAPÍTULO VI "DEL NOMBRAMIENTO Y ATRIBUCIONES DEL ÓRGANO INTERNO DE CONTROL" DEL TÍTULO II Y LOS ARTÍCULOS 23 BIS, 23 TER Y SE ADICIONAN LOS ARTÍCULOS 23 QUARTER Y 23 QUINQUIES DE LA LEY DE LA COMISIÓN DE DERECHOS HUMANOS DEL ESTADO DE CAMPECHE".]
+PRIMERO.- El presente decreto entrará en vigor el día 19 de julio de 2017, previa publicación en el Periódico Oficial del Estado.
+SEGUNDO.- El titular del Órgano Interno de Control de la Comisión de Derechos Humanos del Estado de Campeche, que se encuentre en funciones a la entrada en vigor del presente decreto, continuará en el encargo en los términos de su nombramiento actual.
+TERCERO.- Para el cumplimiento de este decreto se deberá prever en el presupuesto de egresos del Estado del ejercicio fiscal 2018, las partidas presupuestales necesarias para la creación de las nuevas áreas contemplados en la presente iniciativa.
+CUARTO.- En un término de 90 días contados a partir de la entrada en vigor de este decreto, deberá armonizarse en el Reglamento Interno de la Comisión de Derechos Humanos del Estado de Campeche, lo que corresponda al Órgano Interno de Control.
+QUINTO.- Se derogan todas las disposiciones legales, reglamentarias y administrativas en lo que se opongan al presente decreto.

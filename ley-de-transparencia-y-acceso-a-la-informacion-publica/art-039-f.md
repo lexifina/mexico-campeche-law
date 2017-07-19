@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 13 DE JULIO DE 2017)
+Artículo 39-F. Con motivo de los procedimientos administrativos, los servidores públicos tienen garantizado el ejercicio de sus derechos fundamentales establecidos en la Constitución Política de los Estados Unidos Mexicanos, y en la particular del Estado, y podrán interponer los recursos legales procedentes para dirimir todo tipo de controversias cuando se vulneren sus derechos.
