@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 4 DE JUNIO DE 1997)
-ART. 49-BIS.- LAS PARTES PODRAN FORMULAR EXCITATIVA DE JUSTICIA ANTE EL PRESIDENTE DE LA SALA, CUANDO EL MAGISTRADO PONENTE NO FORMULE EL PROYECTO RESPECTIVO DENTRO DEL PLAZO SEÑALADO EN ESTE CODIGO. LO ANTERIOR NO PODRA TENER LUGAR CUANDO SE HALLE EN CURSO UN PROCESO ELECTORAL.
+(REFORMADO, P.O. 28 DE AGOSTO DE 2017)
+Art. 49-bis.- Las partes podrán formular excitativa de justicia ante el Presidente del Tribunal de Justicia Administrativa del Estado, cuando el magistrado de la Sala Unitaria en Materia Contenciosa-Administrativa no formule la sentencia respectiva dentro del plazo señalado en este Código.

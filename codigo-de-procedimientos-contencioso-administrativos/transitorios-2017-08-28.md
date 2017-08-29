@@ -1,0 +1,4 @@
+P.O. 28 DE AGOSTO DE 2017.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 199 POR EL QUE "SE REFORMAN LOS ARTÍCULOS 1, 2, 3, 4, 5, 6, 7, 9, 10, 13, 15, 16, 17, 23, 24, 25, 26, 28, 30, 32, 33, 35, 36, 37, 38, 39, 40, 41, 42, 43, 44, 46, 47, 48, 49, 49 BIS, 49 TER, 50, 53, 55, 57, 58, 60, 61, 62, 64, 65, 66, 67, 68 Y 69 TODOS DEL CÓDIGO DE PROCEDIMIENTOS CONTENCIOSO-ADMINISTRATIVOS DEL ESTADO DE CAMPECHE, MODIFICACIONES QUE POR EL NÚMERO DE DISPOSICIONES QUE SE REFORMAN, AMERITA LA REPRODUCCIÓN COMPLETA DE ESTE CÓDIGO".]
+PRIMERO.- El presente decreto entrará en vigor el día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Las disposiciones de este Código vigentes hasta antes de la entrada en vigor del presente decreto, seguirán siendo aplicadas por la Sala que determine el Tribunal Superior de Justicia del Estado, en los juicios que tenga en trámite en materia contenciosa administrativa, hasta la conclusión de los mismos.
