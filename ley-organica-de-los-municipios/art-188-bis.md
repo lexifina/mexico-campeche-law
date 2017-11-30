@@ -1,4 +1,3 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE ARTICULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA LA LEY.
 (ADICIONADO, P.O. 27 DE OCTUBRE DE 2011)
 ARTÍCULO 188-bis.- El Cabildo deberá expedir la reglamentación relativa a la elaboración de planes, programas e indicadores de gestión y medición del desempeño que incluirá como mínimo indicadores de:
 I. Eficiencia.
