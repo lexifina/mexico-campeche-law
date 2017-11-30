@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
 (ADICIONADO, P.O. 26 DE DICIEMBRE DE 2014)
 Artículo 196 Ter.- Para los efectos de este capítulo las sanciones contenidas en los artículos 196 y 196 bis, se aumentarán en una tercera parte cuando:
 a) el delito lo cometan los encargados de la custodia, vigilancia o traslado de los animales materia del ilícito;

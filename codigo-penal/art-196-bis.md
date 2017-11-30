@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
 (ADICIONADO, P.O. 26 DE DICIEMBRE DE 2014)
 Artículo 196 Bis.- Se equiparará al abigeato la sustracción o el apoderamiento sin derecho y sin consentimiento de quien legalmente pueda disponer de aves, conejos o peces, de cuya crianza consista una actividad de producción pecuaria y se encuentren en las granjas destinadas a estos efectos.
 Este delito se sancionará de la forma siguiente:
