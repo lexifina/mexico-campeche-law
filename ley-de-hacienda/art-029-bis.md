@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 27 DE DICIEMBRE DE 2017)
+ARTÍCULO 29 BIS.- Las personas físicas o morales que en su carácter de intermediarias, promotoras o facilitadoras intervengan en el cobro de las contraprestaciones por servicios de hospedaje, y en caso de que se cubra a través de ellas lo correspondiente al impuesto señalado en este capítulo, deberán inscribirse al Registro Estatal de Contribuyentes en su carácter de intermediario, promotor o facilitador a efecto de coadyuvar en el cumplimiento de lo establecido en el artículo 33 de esta Ley.

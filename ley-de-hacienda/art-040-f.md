@@ -1,3 +1,2 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
 (ADICIONADO, P.O. 24 DE DICIEMBRE DE 2015)
 ARTÍCULO 40-F.- Los operadores de los establecimientos en los que se realicen los juegos y concursos o en los que se instalen las máquinas de juegos, en adición a la obligación de recaudar y enterar el impuesto a que se refiere el artículo 40-D, están obligados a expedir comprobantes por cada contraprestación que cobren, incluyendo la carga y recarga, que otorguen a quienes utilicen las máquinas de juegos, en la que conste expresamente y por separado el importe recaudado.

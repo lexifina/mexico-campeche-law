@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, P.O. 26 DE DICIEMBRE DE 2013)
 Artículo 53-Q.- Los contribuyentes de este impuesto tienen, además de las obligaciones señaladas en este capítulo y en las demás disposiciones fiscales, las siguientes:
 I.- Presentar las declaraciones relativas al impuesto previsto en el presente capítulo. Si un contribuyente tuviera varios establecimientos en el Estado, presentará una declaración por cada establecimiento, o bien una concentrada por todo el Estado.
