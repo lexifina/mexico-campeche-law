@@ -1,0 +1,6 @@
+(ADICIONADO, P.O. 15 DE JUNIO DE 2018)
+Artículo 37 bis.- Los contribuyentes obligados a pagar mediante declaración periódica podrán acreditar el importe de los estímulos fiscales a que tengan derecho, contra las cantidades que están obligados a pagar, siempre que presenten aviso ante las autoridades competentes en materia de estímulos fiscales y, en su caso, cumplan con los demás requisitos formales que se establezcan en las disposiciones que otorguen los estímulos.
+Los contribuyentes podrán acreditar el importe de los estímulos a que tengan derecho, a más tardar en un plazo de cinco años contados a partir del último día en que venza el plazo para presentar la declaración del periodo en que nació el derecho a obtener el estímulo; si el contribuyente no tiene obligación de presentar declaración del periodo, el plazo contará a partir del día siguiente a aquél en que nazca el derecho a obtener el estímulo.
+En los casos en que las disposiciones que otorguen los estímulos establezcan la obligación de cumplir con requisitos formales adicionales al aviso a que se refiere el primer párrafo de este Artículo, se entenderá que nace el derecho para obtener el estímulo, a partir del día en que se obtenga la autorización o el documento respectivo.
+Sección Tercera
+De la Prescripción
