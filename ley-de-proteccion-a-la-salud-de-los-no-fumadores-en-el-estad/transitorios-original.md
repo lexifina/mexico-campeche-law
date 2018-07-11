@@ -10,3 +10,4 @@ C. Humberto Javier Castro Buenfil, Diputado Presidente.- C. Laura Olimpia E. Baq
 En cumplimiento de lo dispuesto por los artículos 48, 49 y 71 Fracción XVIII de la Constitución Política del Estado, lo sanciono, mando se imprima, publique y circule para su debida observancia.
 Dado en el Palacio de Gobierno del Estado, en San Francisco de Campeche, Campeche, a los dos días del mes de Julio del año dos mil nueve.
 El. GOBERNADOR CONSTITUCIONAL DEL ESTADO, C.P. JORGE CARLOS HURTADO VALDEZ.- EL SECRETARIO DE GOBIERNO, M. EN D. RICARDO MEDINA FARFAN.- RUBRICAS.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
