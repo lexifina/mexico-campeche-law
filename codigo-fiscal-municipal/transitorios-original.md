@@ -5,3 +5,4 @@ Dado en el Salón de Sesiones del Palacio Legislativo, en la ciudad de San Franc
 C. Jorge José Sáenz de Miera Lara, Diputado Presidente.- C. Carlos Martín Ruiz Ortega, Diputado Secretario.- C. Jorge Alberto Nordhausen Carrizales, Diputado Secretario.- Rúbricas.
 En cumplimiento de lo dispuesto por los artículos 48, 49 y 71 fracción XVIII de la Constitución Política del Estado, lo sanciono, mando se imprima, publique y circule para su debida observancia.
 Dado en el Palacio de Gobierno del Estado, en San Francisco de Campeche, Campeche, a los once días del mes de diciembre del año dos mil trece.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO, LIC. FERNANDO EUTIMIO ORTEGA BERNES.- EL SECRETARIO DE GOBIERNO. LIC. WILLIAM ROBERTO SARMIENTO URBINA- RUBRICAS.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
