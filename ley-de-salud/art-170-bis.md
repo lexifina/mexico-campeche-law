@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
 (REFORMADO, P.O. 2 DE SEPTIEMBRE DE 2013)
 Artículo 170 bis.- Para el tratamiento de los farmacodependientes, las dependencias y entidades de la administración pública estatal deberán crear centros especializados en atención y rehabilitación de farmacodependientes, en los que, al igual que en las acciones de prevención, se respeten los derechos humanos, la integridad y libre decisión del farmacodependiente.
 La ubicación de los centros especializados se basará en estudios rigurosos del impacto de las adicciones en cada región del Estado y deberán:

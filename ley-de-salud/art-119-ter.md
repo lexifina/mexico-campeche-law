@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTA LEY.
 (ADICIONADO, P.O. 4 DE AGOSTO DE 2011)
 Artículo 119 ter.- A la Secretaría Estatal, en coordinación con las demás autoridades competentes corresponde también:
 I. La difusión permanente de dietas y hábitos alimenticios sanos, como procedimientos que conduzcan al consumo efectivo de los mínimos de nutrimentos por parte de la población general;
