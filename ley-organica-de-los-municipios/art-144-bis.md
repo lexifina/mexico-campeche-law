@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 2 DE OCTUBRE DE 2018)
+ARTÍCULO 144 BIS.- El Gasto total propuesto por el Ayuntamiento en el proyecto de Presupuesto de Egresos, el aprobado y el que se ejerza en el año fiscal, deberán contribuir al Balance Presupuestario sostenible.
+El Ayuntamiento del Municipio deberá generar Balances Presupuestarios sostenibles, para ello, dará cumplimiento a las disposiciones contenidas en la Ley de Disciplina Financiera de las Entidades Federativas y los Municipios, en la Ley de Disciplina Financiera y Responsabilidad Hacendaria del Estado de Campeche y sus Municipios, y en la Ley de Obligaciones, Financiamientos y Deuda Pública del Estado de Campeche y sus Municipios.
