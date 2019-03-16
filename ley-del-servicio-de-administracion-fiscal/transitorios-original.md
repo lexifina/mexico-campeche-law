@@ -21,3 +21,4 @@ Dado en el Salón de Sesiones del Palacio Legislativo, en la ciudad de San Franc
 C. Juan Carlos Damián Vera, Diputado Presidente.- C. Leticia del Rosario Enríquez Cachón, Diputada Secretaria.- C. Sandra Guadalupe Sánchez Díaz, Diputada Secretaria.- Rúbricas.
 RAFAEL ALEJANDRO MORENO CÁRDENAS, Gobernador del Estado de Campeche, mediante el presente Decreto se hace saber a los habitantes del Estado de Campeche:
 Que la LXII Legislatura del H. Congreso Constitucional del Estado Libre y Soberano de Campeche me ha dirigido el Decreto número 100, por lo que, en cumplimiento de lo dispuesto por los artículos 48, 49 y 71, fracción XVIII, de la Constitución Política del Estado de Campeche, lo sanciono, mando se imprima, publique y circule para su debida observancia.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
