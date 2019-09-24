@@ -25,7 +25,8 @@ El incremento gradual establecido se aplicará para el financiamiento del Sistem
 SÉPTIMO.- Con el fin de garantizar el servicio médico a los maestros de educación básica afiliados al Instituto antes del 16 de agosto de 2012, el Poder Ejecutivo, por conducto de la Secretaría de Administración e Innovación Gubernamental, los mantendrá inscritos al seguro de salud del ISSSTE durante todo el tiempo de cotización al Instituto, hasta el último con vigencia de derechos.
 El Instituto, a solicitud del servidor público de educación básica afiliado al Instituto antes del 16 de agosto de 2012, contratará los servicios de un perito en medicina del trabajo para emitir resoluciones sobre el estado de invalidez.
 Asimismo, en caso de solicitud de la prestación de guardería por parte del servidor público de este grupo de educación básica, el Instituto cubrirá el costo de la subrogación mediante convenio con guarderías acreditadas por el IMSS.
-OCTAVO.- Las y los Servidores Públicos que hayan iniciado sus cotizaciones al Instituto con anterioridad al 1 de julio de 2005, y que a la entrada en vigor del presente Decreto aún no tengan derecho a pensión voluntaria por no contar con los 30 años de cotización al Instituto, conforme a lo dispuesto en la misma, se le aplicará al monto que le corresponda del porcentaje establecido en la siguiente tabla, de acuerdo a su edad:
+(F. DE E., P.O. 24 DE SEPTIEMBRE DE 2019)
+OCTAVO.- Las y los Servidores Públicos que hayan iniciado sus cotizaciones al Instituto con anterioridad al 1 de julio de 2005, y que a la entrada en vigor del presente Decreto aún no tengan derecho a pensión voluntaria por no contar con los 30 años de cotización al Instituto, conforme a lo dispuesto en la misma, se le aplicará al monto que le corresponda, el porcentaje establecido en la siguiente tabla, de acuerdo a su edad:
 Edad de inicio de PensiónPorcentaje a percibir
 55 años o menos90%
 56 años92%
