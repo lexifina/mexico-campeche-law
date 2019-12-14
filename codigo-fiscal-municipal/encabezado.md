@@ -1,3 +1,4 @@
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
 CÓDIGO FISCAL MUNICIPAL DEL ESTADO DE CAMPECHE
 Código publicado en el Periódico Oficial del Estado de Campeche, el martes 24 de diciembre de 2013.
 FERNANDO EUTIMIO ORTEGA BERNES, Gobernador Constitucional del Estado Libre y Soberano de Campeche, a sus habitantes, sabed:
