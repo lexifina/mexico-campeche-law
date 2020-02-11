@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 13 DE DICIEMBRE DE 2019)
+Artículo 6 bis. La Secretaría, fomentará la participación de los diferentes sectores de la sociedad en la gestión integral de residuos, para lo cual:
+I. Promoverán la realización de campañas permanentes entre los diferentes sectores de la sociedad, referentes a la difusión sobre el impacto ambiental producido por los plásticos no biodegradables, así como para fomentar la utilización de materiales que faciliten su reúso o reciclado y que sean de pronta biodegradación o de productos compostables; y
+II. Implementarán, en coordinación con las cámaras empresariales, instituciones educativas, organizaciones de la sociedad civil y la sociedad en general, estrategias y campañas de concientización ambiental sobre el uso de productos de plásticos no biodegradables de un solo uso.
