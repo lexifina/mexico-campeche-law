@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 29 DE DICIEMBRE DE 2020)
+Artículo 140-D.- Los servidores públicos competentes en la Auditoría Superior del Estado, responsables de llevar a cabo las notificaciones, deberán asentar razón de las notificaciones por Boletín Electrónico en los expedientes de los procedimientos o auditorías, incluyendo a las notificaciones realizadas con otros procedimientos, agregando a los expedientes las constancias respectivas.
+La Auditoría Superior del Estado llevará un archivo con las publicaciones del Boletín Electrónico y hará las certficaciones que correspondan, a través de los servidores públicos competentes.
