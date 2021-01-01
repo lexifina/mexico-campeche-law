@@ -14,3 +14,4 @@ Que la LXI Legislatura del H. Congreso Constitucional del Estado Libre y Soberan
 Este Decreto es dado en el Palacio de Gobierno del Estado, en San Francisco de Campeche, Municipio y Estado de Campeche, a los veintinueve días del mes de septiembre del año dos mil quince.
 (F. DE E., P.O. 1 DE DICIEMBRE DE 2015)
 EL GOBERNADOR CONSTITUCIONAL DEL ESTADO, LIC. RAFAEL ALEJANDRO MORENO CÁRDENAS.- EL SECRETARIO DE GOBIERNO, LIC. CARLOS MIGUEL AYSA GONZÁLEZ.- RÚBRICAS.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]

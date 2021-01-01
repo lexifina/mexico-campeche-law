@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 3 DE DICIEMBRE DE 2020)
+ARTÍCULO 217 bis.- Si el encargado o titular de un centro de acopio ganadero incumpliera con las obligaciones que mandata esta ley o resultare responsable del delito de abigeato o del delito contra la ganadería, la Secretaría procederá a la cancelación del correspondiente registro de acopiador, así como a la inhabilitación del lugar registrado para dicha actividad, por cinco años ininterrumpidos.
