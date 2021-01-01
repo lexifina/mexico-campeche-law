@@ -1,0 +1,5 @@
+P.O. 5 DE OCTUBRE DE 2020.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 155 POR EL QUE "SE REFORMA EL PÁRRAFO SEGUNDO DEL ARTÍCULO 76 TER DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE CAMPECHE".]
+PRIMERO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- La designación de la primera Directora o primer Director General del Centro de Conciliación Laboral deberá realizarse dentro del improrrogable plazo de treinta días anteriores a la emisión de la declaratoria a que se refiere el artículo transitorio Vigésimo Cuarto del Decreto publicado el 1 de mayo de 2019 en el Diario Oficial de la Federación, por el que se derogan, adicionan y reforman diversas disposiciones de la Ley Federal del Trabajo. Las y los subsecuentes titulares serán designados una vez que concluya el periodo de seis años o, en su caso, de doce años, cuando haya habido reelección.
+TERCERO.- Se derogan todas las disposiciones legales y reglamentarias de igual o menor jerarquía del marco jurídico estatal, que se opongan al contenido del presente decreto.
