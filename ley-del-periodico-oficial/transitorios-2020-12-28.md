@@ -1,0 +1,6 @@
+P.O. 28 DE DICIEMBRE DE 2020.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 204 POR EL QUE "SE REFORMAN LOS ARTÍCULOS 3; 5; 6; 7; 8; 9; 10; EL PRIMER PÁRRAFO Y LA FRACCIÓN V DEL INCISO A DEL ARTÍCULO 11; 13; 14; 16; 18; LA DENOMINACIÓN DEL CAPÍTULO VI PARA QUEDAR COMO "DEL COBRO DE LOS DERECHOS"; LOS ARTÍCULOS 20; 21; 28; 29; 30 Y 32, TODOS DE LA LEY DEL PERIÓDICO OFICIAL DEL ESTADO DE CAMPECHE".]
+PRIMERO.- El presente decreto entrará en vigor el día 1° de enero de 2021, previa publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Para el caso de los ejemplares impresos emitidos antes de la entrada en vigor del presente decreto, y que se encuentren en existencia, para su venta habrá de observarse lo dispuesto en el artículo Tercero Transitorio del Decreto 116, publicado en el Periódico Oficial del Estado No. 1088, Quinta Sección, de fecha 27 de diciembre de 2019.
+TERCERO.- Con la entrada en vigor se deberán de realizar las adecuaciones legales y administrativas al marco jurídico estatal, para armonizarlo con lo dispuesto en el presente decreto.
+CUARTO.- Se derogan todas las disposiciones legales y reglamentarias de igual o menor jerarquía del marco jurídico estatal, en lo que se opongan al contenido del presente decreto.
