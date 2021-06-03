@@ -1,0 +1,5 @@
+P.O. 31 DE MAYO DE 2021.
+N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 226 POR EL QUE "SE REFORMAN LOS PÁRRAFOS SEGUNDO Y CUARTO DEL ARTÍCULO 1; EL PÁRRAFO SEGUNDO DEL ARTÍCULO 5; EL PÁRRAFO SEGUNDO DEL ARTÍCULO 26; LA FRACCIÓN III DEL ARTÍCULO 35; LAS FRACCIONES II Y III DEL ARTÍCULO 39; EL PÁRRAFO PRIMERO DEL ARTÍCULO 44; LA FRACCIÓN VII DEL ARTÍCULO 45; LA FRACCIÓN II DEL ARTÍCULO 78; EL ARTÍCULO 99; LA FRACCIÓN I DEL ARTÍCULO 113; EL PÁRRAFO PRIMERO DEL ARTÍCULO 167; EL ARTÍCULO 172; EL PÁRRAFO SEGUNDO DEL ARTÍCULO 176 Y, SE DEROGAN LA FRACCIÓN XI DEL ARTÍCULO 35 Y LA FRACCIÓN VIII DEL ARTÍCULO 39, TODOS DE LA LEY DE TRANSPARENCIA Y ACCESO A LA INFORMACIÓN PÚBLICA DEL ESTADO DE CAMPECHE".]
+Primero.- El presente decreto entrara´ en vigor tres días después de su publicación en el Periódico Oficial del Estado.
+Segundo.- El Poder Judicial del Estado de Campeche contará con un plazo de 180 días contados a partir de la publicación del presente decreto, para iniciar la difusión de las versiones públicas de las sentencias emitidas.
+Tercero.- Se derogan las disposiciones legales y reglamentarias en lo que se opongan al presente decreto.
