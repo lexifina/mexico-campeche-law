@@ -1,0 +1,6 @@
+P.O. 11 DE JUNIO DE 2021.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 228 POR EL QUE "SE ADICIONA UN PÁRRAFO TERCERO AL ARTÍCULO 39; LOS PÁRRAFOS SEGUNDO Y TERCERO AL ARTÍCULO 325 Y, UN CAPÍTULO III DENOMINADO "DEL REGISTRO DE DEUDORES ALIMENTARIOS MOROSOS" CON LOS ARTÍCULOS 339 BIS, 339 TER, 339 QUATER Y 339 QUINQUIES AL TÍTULO SEXTO DENOMINADO "DEL PARENTESCO Y DE LOS ALIMENTOS", TODOS DEL CÓDIGO CIVIL DEL ESTADO DE CAMPECHE".]
+PRIMERO.- El presente decreto entrará en vigor quince días después de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- La Dirección del Registro del Estado Civil dependiente de la Secretaría General de Gobierno de la administración pública estatal, determinará dentro de su estructura orgánica y con el personal con que cuenta, el área encargada de llevar el Registro de Deudores Alimentarios Morosos a que se refiere el presente decreto.
+TERCERO.- En un plazo no mayor a 180 días contados a partir de la entrada en vigor del presente decreto, el Ejecutivo del Estado realizará las adecuaciones necesarias en el Reglamento Interior del Registro del Estado Civil para el Estado de Campeche y demás disposiciones aplicables para el debido cumplimiento de este decreto.
+CUARTO.- Se derogan todas las disposiciones legales y reglamentarias que se opongan al presente decreto.
