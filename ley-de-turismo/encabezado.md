@@ -1,3 +1,4 @@
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
 LEY DE TURISMO DEL ESTADO DE CAMPECHE
 Ley publicada en el Periódico Oficial del Estado de Campeche, el viernes 4 de marzo de 2011.
 FERNANDO EUTIMIO ORTEGA BERNES, Gobernador Constitucional del Estado Libre y Soberano de Campeche, a sus habitantes, sabed:
