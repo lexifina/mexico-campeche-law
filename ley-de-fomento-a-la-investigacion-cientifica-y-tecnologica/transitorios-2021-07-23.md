@@ -1,0 +1,5 @@
+P.O. 23 DE JULIO DE 2021.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 236 POR EL QUE "SE REFORMA LA FRACCIÓN VI DEL ARTÍCULO 5, LOS ARTÍCULOS 10 Y 36 Y SE ADICIONA UNA FRACCIÓN VII AL ARTÍCULO 5; UN CAPÍTULO IV BIS DENOMINADO "DEL REGISTRO ESTATAL DE INVESTIGADORES Y TECNÓLOGOS" CON UN ARTÍCULO 31 BIS; UN PÁRRAFO SEGUNDO AL ARTÍCULO 32; UN CAPÍTULO VII DENOMINADO " DE LA DIVULGACIÓN, DIFUSIÓN Y FOMENTO DE LA CULTURA CIENTÍFICA, TECNOLÓGICA Y DE INNOVACIÓN" CON LOS ARTÍCULOS 47 Y 48 TODOS A LA LEY DE FOMENTO A LA INVESTIGACIÓN CIENTÍFICA Y TECNOLÓGICA DEL ESTADO DE CAMPECHE".]
+PRIMERO.- El presente decreto entrará en vigor a los quince días siguientes de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Las Secretarías de Finanzas; de Administración e Innovación Gubernamental y, de Educación de la administración pública estatal, tomarán las previsiones administrativas que les correspondan para lo ordenado en este decreto.
+TERCERO.- Se derogan todas las disposiciones legales y reglamentarias en lo que se opongan al contenido de este decreto.
