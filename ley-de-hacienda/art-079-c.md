@@ -1,7 +1,8 @@
 (ADICIONADO, P.O. 13 DE JULIO DE 2017)
 ARTÍCULO 79-C.- En la aplicación de las cuotas de los derechos por servicios prestados por instituciones de salud pública a que refiere el artículo 79-D de esta Ley, deberán observarse los siguientes aspectos específicos:
 I. Las cuotas de recuperación que obtenga el Estado por los servicios públicos de salud serán destinadas para los programas y apoyos de asistencia médica y de rehabilitación en el Estado.
-II. Los servicios de salud y atención médica relacionados con programas de protección social en salud, se cobrarán conforme a los convenios o acuerdos que al efecto celebren el Ejecutivo Federal, Entidades Federativas y el Ejecutivo del Estado de Campeche.
+(REFORMADA, P.O. 16 DE DICIEMBRE DE 2021)
+II. Los servicios de salud, medicamentos e insumos que se otorguen a personas sin seguridad social serán gratuitos, y se regirán por lo establecido en el Título Tercero Bis de la Ley General de Salud y el Acuerdo de Coordinación que para tal efecto se haya celebrado con el Instituto de Salud para el Bienestar.
 III. Los servicios de salud y atención médica que se presten derivados de los acuerdos o convenios que se celebren con otras instituciones, se sujetarán a las cuotas pactadas en los mismos.
 IV. Los ingresos que se obtengan por concepto de medicamentos y material de curación, se aplicarán en esos mismos rubros y en las unidades que los generen.
 V. El costo de los paquetes incluye el servicio, medicamentos y material de curación.

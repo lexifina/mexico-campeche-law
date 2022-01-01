@@ -1,12 +1,12 @@
-(ADICIONADO, P.O. DE 27 DE DICIEMBRE DE 2019)
+(REFORMADO, P.O. 16 DE DICIEMBRE DE 2021)
 ARTÍCULO 79-H.- Los derechos que se pagarán por las publicaciones que se realicen en el Periódico Oficial del Estado serán los siguientes:
-Unidades de
-Medida y
+I. Por publicaciónUnidades de Medida y
 Actualización
-I. Por publicación
-a) Por plana entera15.38
-b) Por media plana7.69
-c) Por cuarto de plana3.84
-II. La expedición de copias certificadas de años anteriores al año 2015, ya que se trata del archivo histórico.
+a) Anual1,000
+b) Por plana entera15.38
+c) Por media plana7.69
+d) Por cuarto de plana3.84
+II. La expedición de copias certificadas
+de las ediciones publicadas
 a) Por la primera hoja1.53
 b) Por las subsiguientes.1
