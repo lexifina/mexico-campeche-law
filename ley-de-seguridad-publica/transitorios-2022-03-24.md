@@ -1,0 +1,10 @@
+P.O. 24 DE MARZO DE 2022.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 44 POR EL QUE "SE REFORMAN LOS ARTÍCULOS 52, 55 PÁRRAFO PRIMERO Y 56, TODOS DE LA LEY DE SEGURIDAD PÚBLICA DEL ESTADO DE CAMPECHE".]
+PRIMERO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- En un plazo no mayor a treinta días naturales contados a partir de la entrada en vigor del presente decreto, el Órgano denominado "Centro de Control, Comando, Comunicaciones y Cómputo" quedará adscrito de manera directa a la Secretaría de Protección y Seguridad Ciudadana del Poder Ejecutivo Estatal.
+De conformidad con lo anterior, la Secretaría de Administración y Finanzas deberá realizar todas las estimaciones presupuestales y financieras que correspondan.
+El Centro de Control, Comando, Comunicaciones y Cómputo podrá integrarse con la naturaleza jurídico-administrativa que le permitan y se prevean en las estimaciones presupuestales correspondientes, dotándoles de la estructura orgánica que se considere adecuada para el cumplimiento de su objeto.
+TERCERO.- De conformidad con el artículo transitorio anterior, el Consejo Estatal de Seguridad Pública, por conducto de la Secretaría de Gobierno, deberá transferir oportunamente a la Secretaría de Protección y Seguridad Ciudadana del Poder Ejecutivo Estatal todos los recursos humanos, materiales, presupuestales y financieros que estén destinados al Órgano denominado "Centro de Control, Comando, Comunicaciones y Cómputo".
+CUARTO.- El Ejecutivo Estatal deberá realizar las modificaciones legales y reglamentarias correspondientes, en un plazo no mayor a treinta días naturales contados a partir de la entrada en vigor del presente decreto.
+QUINTO.- El Consejo Estatal de Seguridad Pública deberá integrar el Consejo Consultivo de Participación Ciudadana en un plazo no mayor a sesenta días naturales a partir de la publicación del presente decreto.
+SEXTO.- Se derogan todas las disposiciones legales y reglamentarias de igual o menor jerarquía del marco jurídico estatal en lo que se opongan al contenido del presente decreto.
