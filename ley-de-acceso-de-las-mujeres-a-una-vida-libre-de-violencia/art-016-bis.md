@@ -1,5 +1,5 @@
 (REFORMADA SU DENOMINACIÓN, P.O. 27 DE MAYO DE 2020)
-Capítulo V BIS
+CAPÍTULO V BIS
 DE LA VIOLENCIA POLÍTICA CONTRA LAS MUJERES EN RAZÓN DE GÉNERO
 (REFORMADO, P.O. 27 DE MAYO DE 2020)
 ARTÍCULO 16 BIS.- La violencia política contra las mujeres en razón de género, es toda acción u omisión, incluida la tolerancia, basada en elementos de género y ejercida dentro de la esfera pública o privada, que tenga por objeto o resultado limitar, anular o menoscabar el ejercicio efectivo de los derechos políticos y electorales de una o varias mujeres, el acceso al pleno ejercicio de las atribuciones inherentes a su cargo, labor o actividad, el libre desarrollo de la función pública, la toma de decisiones, la libertad de organización, así como el acceso y ejercicio a las prerrogativas correspondientes a una precandidatura, candidatura o a un cargo público.

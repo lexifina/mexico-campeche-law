@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 8 DE ABRIL DE 2022)
+ARTÍCULO 16 SEXIES.- La autoridad que ordene las medidas de protección contempladas en este artículo deberá solicitar el resguardo y conservación lícita e idónea del contenido que se denunció de acuerdo con las características del mismo. Las plataformas digitales, medios de comunicación, redes sociales o páginas electrónicas darán aviso de forma inmediata al usuario que compartió el contenido, donde se establezca de forma clara y precisa que el contenido será inhabilitado por cumplimiento de una orden judicial.
+Una vez impuestas las medidas de protección correspondientes se estará al procedimiento previsto por el Código Nacional de Procedimientos Penales.
