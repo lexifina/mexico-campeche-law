@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 26 DE ABRIL DE 2022)
+Art. 305 quater.- En el caso de que uno de los cónyuges se encuentre en la hipótesis prevista en el artículo 304, tendrá derecho, además, a una compensación patrimonial que podrá consistir hasta en el cincuenta por ciento de la propiedad de los bienes inmuebles adquiridos durante la vigencia del matrimonio con el trabajo conjunto de la familia, cuando éstos sean propiedad exclusiva de la o el otro cónyuge, debiendo el juez tomar en consideración las particularidades de cada caso.
+La compensación patrimonial a que se refiere el párrafo anterior tiene efectos complementarios y no excluyentes respecto de la pensión compensatoria fijada conforme a los artículos 304, 305, 305 BIS y 305 TER.
