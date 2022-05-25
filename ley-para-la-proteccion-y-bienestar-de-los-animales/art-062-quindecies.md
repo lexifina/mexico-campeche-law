@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 10 DE MAYO DE 2022)
+ARTÍCULO 62 QUINDECIES.- Dentro de los 5 días hábiles que sigan al vencimiento del plazo otorgado a la o el infractor para subsanar las deficiencias o irregularidades observadas, éste deberá comunicar por escrito y en forma detallada acompañando las pruebas respectivas a la autoridad, haber dado cumplimiento a las medidas ordenadas en los términos del requerimiento respectivo.

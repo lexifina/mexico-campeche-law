@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 10 DE MAYO DE 2022)
+ARTÍCULO 62 TER.- El personal autorizado como inspector para realizar las visitas de inspección, deberá contar con el documento oficial que lo acredite como tal, así como estar previsto de orden escrita debidamente fundada y motivada, con firma autógrafa expedida por la autoridad competente, en la que se precisará el lugar o las zonas que habrán de inspeccionarse, el objeto de la visita, el alcance que deba tener y el personal técnico o de apoyo, en su caso, que estará involucrado.

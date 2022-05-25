@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 10 DE MAYO DE 2022)
+ARTÍCULO 62 DECIES.- La persona con quien se entendió la diligencia, las y los testigos si los hubiera y el personal responsable de la inspección deberán firmarán (sic) el acta correspondiente. Si la persona con quien se entendió la diligencia o las y los testigos se negaren a firmar el acta, o el interesado se negara a aceptar copia de la misma, dichas circunstancias se asentarán en ella, sin que esto afecte la validez de la diligencia. De toda acta se dejará copia a la persona con quien se entendió la diligencia.

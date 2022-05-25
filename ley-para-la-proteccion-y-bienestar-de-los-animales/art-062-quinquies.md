@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 10 DE MAYO DE 2022)
+ARTÍCULO 62 QUINQUIES.- Las y los propietarios, responsables, funcionarios, empleados encargados u ocupantes del establecimiento, lugar o zona objeto de verificación o la persona con quien se atienda la diligencia, están obligados a permitir el acceso y dar facilidades a las y los inspectores, así como proporcionar toda clase de información al personal acreditado como inspector para el desarrollo de la diligencia, con excepción de lo relativo a derechos de propiedad industrial o de patentes que sean confidenciales conforme a la Ley.
