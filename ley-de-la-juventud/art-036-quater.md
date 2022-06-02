@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 30 DE MAYO DE 2022)
+Artículo 36 Quáter.- El Comité Organizador se encargará de establecer las bases y lineamientos de la convocatoria, selección de aspirantes, integración e instalación del Parlamento de la Juventud Campechana, procurando en todo momento que los temas de la convocatoria representen problemáticas sociales actuales y tengan impacto directo en la juventud campechana.
