@@ -1,0 +1,10 @@
+(ADICIONADO, P.O. 7 DE JUNIO DE 2022)
+Artículo 50 Bis.- De conformidad con el artículo anterior, los Convenios que celebren el Estado y el H. Ayuntamiento del Municipio que corresponda deberán contener, como mínimo, lo siguiente:
+I. El o los objetivos del mismo;
+II. La forma, los mecanismos de coordinación y grados de participación que se asumirán para la prestación del servicio público para el ejercicio conjunto, o cuando el Estado asuma en su totalidad la prestación del servicio, de manera temporal, los mecanismos de comunicación entre el Estado y el Municipio;
+III. Cuando el Estado asuma la totalidad de la prestación del servicio público de tránsito, éste se hará cargo del mantenimiento y preservación de la señalización vial y semáforos; en el caso del ejercicio coordinado entre Estado y Municipio se especificará la participación que cada uno tenga en tales actividades;
+IV.- Si el Estado es quien prestará en su totalidad el servicio público de tránsito, la especificación que corresponderá al Estado el cien por ciento de la recaudación de los derechos de la prestación del servicio público de tránsito, así como de lo recaudado por las multas e infracciones, de conformidad con la Ley de Hacienda de los Municipios del Estado de Campeche; en caso del ejercicio coordinado entre Estado y Municipio respecto a la prestación del servicio, se especificará la participación que le corresponderá a cada uno, dependiendo de la forma de coordinación pactada;
+V. Los supuestos de terminación anticipada y recisión;
+VI. La vigencia del Convenio; en caso de que éste tenga una duración hasta el término del período constitucional municipal, se prorrogará por 30 días posteriores a la conclusión de la administración municipal; y
+VII. Las demás condiciones y especificaciones que resulten necesarias para el desempeño de la prestación del servicio público que se asuma o para el ejercicio coordinado de la misma.
+Para que los Convenios citados en el presente artículo surtan efectos frente a terceros, deberán publicarse en el Periódico Oficial del Estado de Campeche.
