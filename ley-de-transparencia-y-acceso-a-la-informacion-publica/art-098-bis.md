@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 28 DE JUNIO DE 2022)
+Artículo 98 Bis.- Si el escrito de denuncia a que se refiere este Capítulo no cumple con alguno de los requisitos establecidos en el artículos 95 de esta Ley y la Comisión no cuenta con elementos suficientes para subsanarlos, se prevendrá a la o el denunciante por una sola ocasión, a través del medio que haya elegido para recibir notificaciones, con el objeto que en el término de tres días siguientes contados del día siguiente al de la notificación de la prevención, con el apercibimiento que, de no cumplir, se desechará la denuncia.
+La prevención interrumpirá el plazo con que cuenta la Comisión para resolver la denuncia y se reanudará al día siguiente en que aquella sea desahogada.
