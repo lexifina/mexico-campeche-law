@@ -1,0 +1,5 @@
+P.O. 1 DE JULIO DE 2022.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 83 POR EL QUE "SE REFORMAN LAS FRACCIONES XIX Y XX DEL ARTÍCULO 5; Y EL INCISO C) DE LA FRACCIÓN IV DEL ARTÍCULO 6 Y, SE ADICIONA LA FRACCIÓN XXI AL ARTÍCULO 5 DE LEY PARA LA GESTIÓN INTEGRAL DE LOS RESIDUOS SÓLIDOS URBANOS, DE MANEJO ESPECIAL Y PELIGROSO DEL ESTADO DE CAMPECHE".]
+Artículo Primero. El presente decreto entrará en vigor al día siguiente después de su publicación en el Periódico Oficial del Estado.
+Artículo Segundo. Para los efectos que se deriven del presente decreto, una vez publicadas las normas oficiales mexicanas que establezcan las especificaciones que deban cumplir los sitios de disposición final de residuos sólidos urbanos para el aprovechamiento de la materia orgánica en procesos de generación de energía, el Gobierno del Estado en coordinación con los Municipios de la Entidad, podrá implementar los instrumentos jurídicos y/o administrativos necesarios, en términos de la legislación aplicable al efecto.
+Artículo Tercero. Se derogan todas las disposiciones legales y reglamentarias que se opongan al presente decreto.
