@@ -9,3 +9,4 @@ SÉPTIMO. El Ejecutivo Estatal y el H. Congreso del Estado realizarán las adecu
 OCTAVO. Se derogan todas las disposiciones legales y reglamentarias de igual o menor jerarquía del marco jurídico estatal, que se opongan al contenido del presente decreto.
 Dado en el Salón de Sesiones del Palacio Legislativo, en la ciudad de San Francisco de Campeche, Campeche, a los veinticinco días del mes de marzo del año dos mil veinte
 C. Merck Lenin Estrada Mendoza. Diputado Presidente. C. María del C. Guadalupe Torres Arango. Diputada Secretaria. C. Etelvina Correa Damián. Diputada Secretaria. RÚBRICA.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
