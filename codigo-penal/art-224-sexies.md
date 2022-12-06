@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 5 DE DICIEMBRE DE 2022)
+Artículo 224 Sexies.- Al servidor público que retarde o entorpezca maliciosamente o por negligencia la procuración o administración de justicia, cuando se trate de la investigación de un delito de violencia vicaria o violencia familiar, se le impondrán de tres a seis años de prisión y multa de quinientas a mil quinientas Unidades de Medida y Actualización. Además será destituido e inhabilitado por un plazo de tres a seis años para desempeñar otro empleo, cargo o comisión públicos.

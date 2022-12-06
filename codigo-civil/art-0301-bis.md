@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 5 DE DICIEMBRE DE 2022)
+Art. 301 BIS.- La o el juez podrá, en beneficio de los menores, modificar el ejercicio de la patria potestad y custodia o cuidado de éstos cuando la tenga decretada judicialmente, ya sea de manera provisional o definitiva, cuando se acredite que los menores han sido o están siendo utilizados para cometer violencia vicaria, en los términos que establece la Ley de Acceso de las Mujeres a una Vida Libre de Violencia del Estado de Campeche y el Código Penal del Estado de Campeche.
