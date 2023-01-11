@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 12 DE OCTUBRE DE 2022)
+Art. 23 Bis.- El Periódico Oficial del Estado deberá poner a disposición de la Consejería Jurídica del Poder Ejecutivo del Estado de Campeche los índices a los que se refieren los artículos 22 y 23 de esta Ley una vez que los tenga integrados y deberá facilitar la entrega de información que, sobre el particular, le requiera dicha Dependencia para el desarrollo de sus atribuciones.
