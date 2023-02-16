@@ -11,3 +11,4 @@ SÉPTIMO.- Para los efectos a que se refiere el artículo 12 de esta Ley, los in
 OCTAVO.- Las iniciativas de enajenación de inmuebles, que hayan sido presentadas antes de la vigencia de esta Ley, se resolverán conforme al decreto correspondiente que emita la Legislatura.
 Dado en el Salón de Sesiones del Palacio Legislativo, en la ciudad de San Francisco de Campeche, Campeche, a los diecinueve días del mes de febrero del año dos mil ocho.
 EL GOBERNADOR CONSTITUCIONAL DEL ESTADO, C.P. JORGE CARLOS HURTADO VALDEZ.- EL SECRETARIO DE GOBIERNO, M. EN D. RICARDO MEDINA FARFAN. RÚBRICAS.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
