@@ -1,7 +1,7 @@
 (ADICIONADO, P.O. 21 DE ABRIL DE 2016)
 ARTÍCULO 125 Bis.- En el Estado de Campeche se contará con un organismo autónomo, especializado, imparcial y colegiado, responsable de garantizar el derecho de acceso a la información y de protección de datos personales en posesión de cualquier autoridad, entidad, órgano y organismo de los Poderes Ejecutivo, Legislativo y Judicial, órganos autónomos, partidos políticos, fideicomisos y fondos públicos, así como de cualquier persona física, moral o sindicato que reciba y ejerza recursos públicos o realice actos de autoridad en los ámbitos estatal y municipal.
-(REFORMADO, P.O. 18 DE ENERO DE 2021)
-El organismo garante del derecho de acceso a la información y de protección de datos personales estará integrado por tres miembros, denominados Comisionadas y Comisionados, mismos que serán nombrados por el Congreso del Estado por un período de seis años, sin posibilidad de reelegirse. En la designación de las Comisionadas y Comisionados se observará el principio de paridad de género.
+(REFORMADO, P.O. 6 DE MARZO DE 2023)
+El organismo garante del derecho de acceso a la información y de protección de datos personales estará integrado por tres miembros, denominados Comisionadas y Comisionados, mismos que serán nombrados por el Congreso del Estado por un periodo de seis años. En la designación de las Comisionadas y Comisionados se observará el principio de paridad de género.
 En su funcionamiento, el organismo garante del derecho de acceso a la información y de protección de datos personales se regirá por los principios de certeza, legalidad, independencia, imparcialidad, eficacia, objetividad, profesionalismo, transparencia y máxima publicidad.
 Para ser Comisionado del organismo garante se deberán satisfacer los siguientes requisitos:
 a) Ser mexicano en pleno goce de sus derechos civiles y políticos;
