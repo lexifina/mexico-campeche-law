@@ -1,0 +1,7 @@
+P.O. 16 DE MARZO DE 2023.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 205 POR EL QUE "SE REFORMA LA FRACCIÓN II DEL ARTÍCULO 1, EL PÁRRAFO SEGUNDO DEL ARTÍCULO 3, LA FRACCIÓN II DEL ARTÍCULO 12, EL ARTÍCULO 41, EL PÁRRAFO QUINTO DEL ARTÍCULO 43 Y LA FRACCIÓN III DEL APARTADO B DEL ARTÍCULO 53 DE LA LEY DE DEFENSORIA PÚBLICA Y ASISTENCIA JURÍDICA GRATUITA DEL ESTADO DE CAMPECHE".]
+Artículo Primero.- El presente decreto entrará en vigor 180 días siguientes al de su publicación en el Periódico Oficial del Estado.
+Artículo Segundo.- El Congreso del Estado deberá realizar las adecuaciones al marco normativo estatal que resulten pertinentes para la adecuada observancia de este decreto.
+Artículo Tercero.- El organismo descentralizado denominado "Instituto de Acceso a la Justicia del Estado", para el debido cumplimiento de este decreto, deberá tomar las previsiones presupuestales necesarias en el Presupuesto de Egresos del Estado para el ejercicio fiscal 2024.
+Artículo Cuarto.- La prestación de servicios de asistencia jurídica a que se refiere este decreto se realizará de manera gradual, a partir del 1° de enero de 2024, de conformidad con la disponibilidad de recursos humanos, administrativos y financieros con que cuente el Instituto de Acceso a la Justicia del Estado
+Artículo Quinto.- Se derogan las disposiciones legales y reglamentarias de igual o menor jerarquía en lo que se opongan al presente decreto.
