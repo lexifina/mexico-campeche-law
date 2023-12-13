@@ -1,0 +1,1 @@
+ARTÍCULO 55 (SIC).- Los locales destinados a oficinas del crematorio contarán con sistema de ventilación adecuada o acondicionamiento de aire, observándose todas las disposiciones sanitarias para la protección de la higiene y salubridad pública.
