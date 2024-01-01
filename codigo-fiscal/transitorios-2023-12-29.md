@@ -1,0 +1,4 @@
+P.O. 29 DE DICIEMBRE DE 2023.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 328 POR EL QUE "SE REFORMA EL PÁRRAFO PRIMERO DEL ARTÍCULO 17; EL ARTÍCULO 49; EL PÁRRAFO SEXTO DEL ARTÍCULO 74 Y EL ARTÍCULO 218" Y "SE REPONE CON NUEVO TEXTO EL ARTÍCULO 51; LA FRACCIÓN VII DEL ARTÍCULO 61 Y SE ADICIONAN LOS ARTÍCULOS 51-A; 51-B; 72-A; 72-B; 72-C; 72-D; UNA FRACCIÓN III AL SEGUNDO PÁRRAFO DEL ARTÍCULO 78; LOS ARTÍCULOS 90-A, 90-B, 90-C Y UNA FRACCIÓN VI AL ARTÍCULO 92; TODOS DEL CÓDIGO FISCAL DEL ESTADO DE CAMPECHE".]
+PRIMERO.- El presente decreto entrará en vigor el día 1° de enero de 2024, previa publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Se derogan todas las disposiciones legales y reglamentarias de igual o menor jerarquía del marco jurídico estatal, en lo que se opongan al contenido del presente decreto.

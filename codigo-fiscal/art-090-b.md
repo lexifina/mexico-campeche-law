@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 29 DE DICIEMBRE DE 2023)
+Artículo 90-B.- Son infracciones relacionadas con la emisión de dictámenes, relativas al cumplimiento de las disposiciones fiscales estatales, que la o el contador público registrado que dictamina no observe la omisión del pago de contribuciones a que se encuentra obligado el contribuyente en términos de la ley de Hacienda del Estado de Campeche y siempre que la omisión de contribuciones sea determinada por las autoridades fiscales en ejercicio de sus facultades de comprobación mediante resolución que haya quedado firme.
+No se incurrirá en la infracción a que se refiere el párrafo anterior, cuando la omisión determinada no supere el 20% de las contribuciones estatales del contribuyente.
