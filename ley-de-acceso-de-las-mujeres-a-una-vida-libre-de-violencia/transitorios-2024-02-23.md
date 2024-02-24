@@ -1,0 +1,4 @@
+P.O. 23 DE FEBRERO DE 2024.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 338 POR EL QUE "SE REFORMAN LAS FRACCIONES IV Y XII DEL ARTÍCULO 5; LAS FRACCIONES XI, XII Y XIII DEL ARTÍCULO 20; LA FRACCIÓN VII DEL ARTÍCULO 30; SE ADICIONAN LAS FRACCIONES XIII, XIV AL ARTÍCULO 5; UN PÁRRAFO SEGUNDO AL ARTÍCULO 6 Y UNA FRACCIÓN XIV AL ARTÍCULO 20, TODOS DE LA LEY DE ACCESO DE LAS MUJERES A UNA VIDA LIBRE DE VIOLENCIA DEL ESTADO DE CAMPECHE".]
+Primero.- El presente decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+Segundo.- Se derogan las disposiciones legales y reglamentarias en lo que se opongan al presente decreto.
