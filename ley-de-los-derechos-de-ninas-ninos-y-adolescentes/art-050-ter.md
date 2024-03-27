@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 26 DE MARZO DE 2024)
+Artículo 50 Ter. Las autoridades estatales y municipales, en el ámbito de sus respectivas atribuciones, capacitarán al cuerpo médico, de enfermería, trabajo social y administrativo de clínicas, establecimientos de salud y hospitales del sector público y privado a fin de que puedan atender a niñas, niños y adolescentes, de manera integral y sensibilizada, en materia de derechos humanos y de interés superior de la niñez.
