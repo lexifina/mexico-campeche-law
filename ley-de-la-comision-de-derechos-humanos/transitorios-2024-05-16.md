@@ -1,0 +1,6 @@
+P.O. 16 DE MAYO DE 2024.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 354 POR EL QUE "SE REFORMA EL ARTÍCULO 16 Y SE ADICIONA EL ARTÍCULO 19 BIS DE LA LEY DE LA COMISIÓN DE DERECHOS HUMANOS DEL ESTADO DE CAMPECHE".]
+Artículo Primero.- El presente decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+Artículo Segundo.- Para garantizar la oportuna operatividad del Consejo Consultivo, la designación de las nuevas personas Consejeras por el Congreso del Estado deberá hacerse en un plazo que no exceda de 90 días siguientes a la entrada en vigor del presente decreto.
+Artículo Tercero.- Por esta única ocasión, dos de las personas consejeras titulares y sus respectivos suplentes ejercerán su encargo por un periodo de tres años y las restantes con sus correspondientes suplentes por un periodo de cinco años, los cuales serán contados a partir de la fecha de su elección. La pertinente determinación se hará en la misma sesión, inmediatamente después de la elección, mediante el procedimiento de insaculación, correspondiendo a las dos primeras personas titulares y sus suplentes insaculadas el ejercer su cargo por el periodo de tres años y a las demás por un periodo de cinco años.
+Artículo Cuarto.- Se derogan las disposiciones legales y reglamentarias en lo que se opongan al contenido del presente decreto.

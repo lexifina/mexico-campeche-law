@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 16 DE MAYO DE 2024)
+ARTICULO 19. Bis.- En caso de no poder asistir a alguna sesión ordinaria o extraordinaria del Consejo Consultivo que se vaya a celebrar, la Consejera o Consejero titular deberá dar aviso al Secretario Técnico de la Comisión Estatal, con 48 horas de antelación, para que éste solicite de inmediato la asistencia de su suplente, para que asista a la sesión de que se trate.
