@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 29 DE MAYO DE 2024)
+ARTÍCULO 10 bis.- Acoso Sexual en Espacios Públicos: Es una forma de violencia que conlleva un abuso de poder respecto de la víctima, sin que medie relación alguna con la persona agresora. Se manifiesta a través de una conducta física o verbal de connotación sexual no consentida ejercida sobre una o varias personas, en espacios y medios de transporte públicos, cuya acción representa una vulneración a los derechos humanos.
