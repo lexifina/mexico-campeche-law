@@ -1,0 +1,10 @@
+(ADICIONADO, P.O. 31 DE JULIO DE 2024)
+Artículo 17 Bis.- El Consejo Estatal de Pesca y Acuacultura tendrá como objetivos:
+I. Proponer las políticas, programas de carácter estatal y municipal para el manejo adecuado de cultivos y pesquerías que impulsen el desarrollo de la pesca y acuacultura;
+II. Promover el aprovechamiento sustentable de los recursos pesqueros y acuícolas en el Estado, con base en el conocimiento científico y tecnológico, con el cuidado y conservación del medio ambiente y considerando los factores económicos y sociales de la región;
+III. Fortalecer las acciones de la actividad pesquera en el Estado, así como para la descentralización de programas, recursos y funciones, proyectos e instrumentos tendientes al apoyo, fomento, productividad, regulación y control de las actividades pesqueras y acuícolas, además de incrementar la competitividad de los sectores productivos;
+IV. Contribuir a la coordinación entre las autoridades federal, estatal y municipales, así como la participación concertada de los sectores productivos, centros de enseñanzas e instituciones de investigación;
+V. Reforzar las acciones de inspección y vigilancia, procurando la coordinación entre las autoridades federal, estatal y municipales, así como la participación de los sectores productivos;
+VI. Proponer a la autoridad competente mecanismos de participación para el ejercicio ordenado de las actividades de pesca y acuacultura en el Estado, sin contravenir las disposiciones legales, normativas y administrativas aplicables;
+VII. Promover la complementariedad y armonización de los esfuerzos de investigación científica y tecnológica desarrollada por las instituciones estatales o regionales de investigación y educación superior aplicables a la pesca y acuacultura, para orientar la realización de estudios específicos necesarios que atiendan la problemática productiva del sector; y
+VIII. Coadyuvar con el Instituto y la Secretaría en los mecanismos de participación de los productores dedicados a las actividades pesqueras y acuícolas.

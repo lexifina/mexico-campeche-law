@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 31 DE JULIO DE 2024)
+Artículo 3 Bis.- Corresponde al Estado promover las condiciones para que la libertad y la igualdad de las personas sean reales y efectivas.
+Los poderes públicos estatal y municipales deberán eliminar todos aquellos obstáculos que limiten en los hechos su ejercicio e impidan el pleno desarrollo de las personas, así como su efectiva participación en la vida política, económica, cultural y social del país y promoverán, garantizarán e impulsarán la participación de las autoridades de sus órdenes de Gobierno y de las personas particulares en la eliminación de dichos obstáculos.

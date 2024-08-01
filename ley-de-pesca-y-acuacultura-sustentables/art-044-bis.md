@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 31 DE JULIO DE 2024)
+Artículo 44 Bis.- Los aspirantes al registro deberán de cumplir con la presentación de los requisitos generales señalados en las convocatorias que el Instituto de Pesca emita para el ordenamiento por cada figura.
+Los documentos requeridos se entregarán en formato PDF, digitalizados de manera individual; asimismo se deberán de presentar los documentos en original, únicamente para cotejo de estos con los archivos electrónicos y se deberá de proporcionar un correo electrónico personal que se encuentre activo.
+Una vez concluido el proceso de recepción y validación de la información, el Instituto de Pesca deberá hacer llegar de manera física y/o electrónica la Cédula de Identificación que acredite el registro exitoso; considerándose como exitoso haber adquirido el estatus actualizado, recabando la firma del interesado para acreditar que los datos contenidos en el Registro Estatal son los proporcionados durante el proceso.

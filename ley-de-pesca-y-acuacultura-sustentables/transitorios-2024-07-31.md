@@ -1,0 +1,6 @@
+P.O. 31 DE JULIO DE 2024.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 370 POR EL QUE "SE REFORMAN LOS ARTÍCULOS 3; 17; 18; 22; EL PÁRRAFO TERCERO DEL ARTÍCULO 26; EL PÁRRAFO PRIMERO DEL ARTÍCULO 28; EL ARTÍCULO 38; EL PÁRRAFO TERCERO DEL ARTÍCULO 44; EL ARTÍCULO 45; LA FRACCIÓN VI DEL ARTÍCULO 50 Y EL PÁRRAFO PRIMERO DEL ARTÍCULO 55; Y SE ADICIONA LA FRACCIÓN VII BIS AL ARTÍCULO 4°; LOS ARTÍCULOS 17 BIS; 17 TER; 18 BIS; 18 TER; 18 QUATER; 18 QUINQUIES; EL PÁRRAFO CUARTO AL ARTÍCULO 44; LOS ARTÍCULOS 44 BIS, 44 TER Y 44 QUATER, TODOS DE LA LEY DE PESCA Y ACUACULTURA SUSTENTABLES DEL ESTADO DE CAMPECHE".]
+PRIMERO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- En un plazo no mayor a noventa días contados a partir de la entrada en vigor del presente decreto, deberá realizarse la expedición del Reglamento Interior del Consejo Estatal de Pesca y Acuacultura del Estado.
+Asimismo, el Ejecutivo Estatal deberá realizar los cambios que considere pertinentes en los instrumentos jurídicos del marco normativo administrativo.
+TERCERO.- Se derogan todas las disposiciones legales y reglamentarias de igual o menor jerarquía del marco jurídico estatal, en lo que se opongan al contenido del presente decreto.
