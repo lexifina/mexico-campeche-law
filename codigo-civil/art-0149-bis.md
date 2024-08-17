@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 16 DE AGOSTO DE 2024)
+Art. 149 Bis.- Pueden pedir el levantamiento de una nueva acta de nacimiento para el reconocimiento de la identidad de género autopercibida y cambio de nombre, previa anotación correspondiente en el acta de nacimiento primigenia, las personas que requieran el reconocimiento de su identidad de género.
+El reconocimiento respectivo se llevará a cabo ante las instancias y las autoridades correspondientes del Registro Civil de la Entidad cumpliendo todas las formalidades que exige su Reglamento.
+Los efectos de la nueva acta de nacimiento para el reconocimiento de la identidad de género autopercibida realizados serán oponibles a terceros desde su levantamiento.
+Los derechos y obligaciones contraídas con anterioridad al proceso administrativo para el reconocimiento de la identidad de género autopercibida, cambio de nombre y a la expedición de la nueva acta, no se modificarán ni se extinguen con la nueva identidad jurídica de la persona; incluidos los provenientes de las relaciones propias del derecho de familia en todos sus órdenes y grados, los que se mantendrán inmodificables.
