@@ -1,0 +1,8 @@
+P.O. 18 DE SEPTIEMBRE DE 2024.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 398 POR EL QUE "SE REFORMA EL PÁRRAFO PRIMERO Y LA FRACCIÓN VII DEL ARTÍCULO 18; EL PÁRRAFO PRIMERO Y LA FRACCIÓN II DEL ARTÍCULO 19; EL PÁRRAFO SEGUNDO DE LA FRACCIÓN VII Y LA FRACCIÓN VIII DEL ARTÍCULO 24; LA FRACCIÓN XVII DEL ARTÍCULO 54; LOS ARTÍCULOS 63 Y 65 Y, SE ADICIONA UNA FRACCIÓN VIII AL ARTÍCULO 18; UNA FRACCIÓN XXXVIII BIS AL ARTÍCULO 54; LOS ARTÍCULOS 63 BIS, 63 TER, 63 QUATER Y LA FRACCIÓN VII AL ARTÍCULO 105, TODOS DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE CAMPECHE".]
+PRIMERO.- El presente decreto entrará en vigor al día siguiente hábil de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- El ejercicio de las atribuciones que esta Constitución le confiere al Instituto Electoral del Estado de Campeche en materia de revocación de mandato y demás mecanismos de participación ciudadana, se cubrirán con base en la disponibilidad presupuestaria para el presente ejercicio y los subsecuentes.
+TERCERO.- El Congreso del Estado emitirá la Ley de Revocación de Mandato dentro de los 180 días hábiles siguientes a la entrada en vigor del presente decreto.
+CUARTO.- El ejercicio de la revocación de mandato contemplado en el presente decreto será aplicable a partir de la persona titular del Poder Ejecutivo del Estado electa para el periodo 2027- 2033.
+QUINTO.- El Congreso del Estado de Campeche deberá emitir la demás legislación secundaria correspondiente, en un plazo máximo de 180 días naturales a partir de la entrada en vigor del presente decreto.
+SEXTO.- Se derogan todas las disposiciones legales y reglamentarias de igual o menor jerarquía del marco jurídico estatal, en lo que se opongan al contenido del presente decreto.
