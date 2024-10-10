@@ -1,0 +1,5 @@
+P.O. 9 DE OCTUBRE DE 2024.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 412 POR EL QUE "SE REFORMAN LOS ARTÍCULOS 4, 5, 6, 9, 10, EL PÁRRAFO SEGUNDO DEL ARTÍCULO 11, LOS ARTÍCULOS 12, 13, 14, 15, 16, 18, 25, 27, 28, 29, EL PÁRRAFO PRIMERO DEL ARTÍCULO 44, LOS ARTÍCULOS 47, 50, 51 Y EL PÁRRAFO PRIMERO DEL ARTÍCULO 52, TODOS DE LA LEY DE AUSTERIDAD Y AHORRO DEL ESTADO DE CAMPECHE Y SUS MUNICIPIOS".]
+PRIMERO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- En un plazo de noventa días naturales contados a partir de la entrada en vigor del presente decreto, el Ejecutivo Estatal, a través de la Secretaría de Administración y Finanzas, deberá realizar las modificaciones respectivas a los Lineamientos para la Integración, Operación y Funcionamiento del Comité de Evaluación en materia de Austeridad y Ahorro, publicados en el Periódico Oficial del Estado con fecha 03 de abril de 2024.
+TERCERO.- Se derogan todas las disposiciones legales y reglamentarias de igual o menor jerarquía del marco jurídico estatal, en todo lo que se opongan al contenido del presente decreto.

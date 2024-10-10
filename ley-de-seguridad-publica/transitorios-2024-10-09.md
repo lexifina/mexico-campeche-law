@@ -1,0 +1,6 @@
+P.O. 9 DE OCTUBRE DE 2024.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 410 POR EL QUE "SE REFORMA LA FRACCIÓN XII DEL ARTÍCULO 3 Y LOS ARTÍCULOS 20, 22 Y 56, TODOS DE LA LEY DE SEGURIDAD PÚBLICA DEL ESTADO DE CAMPECHE".]
+PRIMERO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- El Consejo Estatal de Seguridad Pública, que actualmente se encuentra en la Secretaría de Gobierno, quedará adscrito a la Secretaría de Protección y Seguridad Ciudadana, por lo que, en un plazo no mayor a 90 días naturales a partir de la entrada en vigor del presente decreto, serán transferidos todos los recursos presupuestales, financieros, materiales y humanos de dicho Órgano Desconcentrado a la Secretaría de Protección y Seguridad Ciudadana.
+TERCERO.- En un plazo de 90 días naturales contados a partir de la entrada en vigor del presente decreto, la Gobernadora del Estado deberá realizar las modificaciones a los reglamentos interiores de la Secretaría de Gobierno, de la Secretaría de Protección y Seguridad Ciudadana y del Consejo Estatal de Seguridad Pública, para su implementación.
+CUARTO.- Se derogan todas las disposiciones legales y reglamentarias de igual o menor jerarquía del marco jurídico estatal en lo que se opongan al contenido del presente decreto.

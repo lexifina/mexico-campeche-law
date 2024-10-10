@@ -3,10 +3,8 @@ TRANSITORIO:
 Dado en el Salón de Sesiones del Palacio Legislativo, en la ciudad de San Francisco de Campeche, Campeche, a los (con letras) días del mes de _____ del año de (con letras).
 C.___________________________
 Diputado Presidente
-C.__________________
-Diputado Secretario
-C. __________________
-Diputado Secretario
+C.__________________ C. __________________
+Diputado Secretario Diputado Secretario
 Art. 161.- (DEROGADO, P.O. 27 DE JULIO DE 2022)
 Art. 162.- Las comparecencias a que alude la fracción XXX del artículo 54 de la Constitución local se desahogarán con arreglo a las bases que al efecto disponga la asamblea legislativa, a moción de la Junta de Gobierno y Administración; y dentro del orden que debe seguirse para el desarrollo de la sesión tendrán lugar en el punto de asuntos generales.
 Art. 163.- El Congreso del Estado reglamentará el servicio civil de carrera de sus servidores públicos, atendiendo a la capacidad, idoneidad, rectitud, probidad, constancia y profesionalismo. El servicio civil de carrera tendrá como propósito garantizar la estabilidad y seguridad en el empleo, así como fomentar la vocación de servicio y promover la capacitación permanente del personal. Los miembros del servicio civil de carrera serán considerados trabajadores de confianza.
