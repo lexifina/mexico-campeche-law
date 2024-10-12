@@ -1,0 +1,4 @@
+P.O. 9 DE OCTUBRE DE 2024.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 408 POR EL QUE "SE REFORMA LA FRACCIÓN I DEL ARTÍCULO 94 Y SE DEROGA LA FRACCIÓN III DEL ARTÍCULO 50 DE LA LEY ORGÁNICA DEL PODER JUDICIAL DEL ESTADO DE CAMPECHE".]
+PRIMERO.- El presente decreto entrará en vigor al día siguiente al de inicio de vigencia del decreto por el que se derogan las fracciones XII y XIII y se reforma la fracción XIV del artículo 54; se derogan las fracciones II, III y IV del artículo 71; se reforman los artículos 77, 78, 78 bis, 79 y el último párrafo del artículo 80, los artículos 82, 83, 84, 85, 86, 87 y la fracción I del artículo 101 quáter de la Constitución Política del Estado de Campeche, previa su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Se derogan todas las disposiciones legales y reglamentarias de igual o menor jerarquía del marco jurídico estatal, en lo que se opongan al contenido del presente decreto.
