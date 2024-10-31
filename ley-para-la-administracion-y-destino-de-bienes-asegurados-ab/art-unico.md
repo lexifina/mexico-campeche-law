@@ -1,0 +1,2 @@
+ARTÍCULO ÚNICO.- Se expide la Ley para la Administración y Destino de Bienes Asegurados, Abandonados o Decomisados y Destino de Bienes Declarados Extintos y de Sanciones Económicas por Hechos de Corrupción para el Estado de Campeche, para quedar como sigue:
+LEY PARA LA ADMINISTRACIÓN Y DESTINO DE BIENES ASEGURADOS, ABANDONADOS O DECOMISADOS Y DESTINO DE BIENES DECLARADOS EXTINTOS Y DE SANCIONES ECONÓMICAS POR HECHOS DE CORRUPCIÓN PARA EL ESTADO DE CAMPECHE
