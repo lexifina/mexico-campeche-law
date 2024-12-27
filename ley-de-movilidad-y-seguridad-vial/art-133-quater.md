@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 26 DE DICIEMBRE DE 2024)
+Artículo 133 Quáter.- Las facultades y obligaciones de la Junta de Gobierno, del Director General y de sus órganos de vigilancia; la periodicidad con la que sesionará el órgano de gobierno y la forma en la que se tomarán sus resoluciones serán aquellas que se establezcan en el Reglamento Interior de la Agencia Reguladora del Transporte, de conformidad con lo previsto en la Ley de la Administración Pública Paraestatal del Estado de Campeche.
