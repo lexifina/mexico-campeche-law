@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 26 DE DICIEMBRE DE 2024)
+ARTÍCULO 16 BIS D.- En caso de crearse un Municipio, y en tanto no se genere la información conforme el artículo 18 bis de la presente Ley, a la participación resultante de aplicar las fórmulas descritas en los artículos 16 BIS A, 16 BIS B y 16 BIS C, se le aplicarán los coeficientes de participación poblacional sobre el monto correspondiente al Municipio de origen, establecido en el artículo 11 bis de la presente Ley.
