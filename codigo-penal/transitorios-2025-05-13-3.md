@@ -1,0 +1,4 @@
+P.O. 13 DE MAYO DE 2025.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 85 POR EL QUE "SE ADICIONA UN CAPÍTULO III BIS DENOMINADO "COHABITACIÓN FORZADA DE PERSONAS MENORES DE DIECIOCHO AÑOS DE EDAD O DE PERSONAS QUE NO TIENEN CAPACIDAD PARA COMPRENDER EL SIGNIFICADO DEL HECHO O DE PERSONAS QUE NO TIENEN CAPACIDAD PARA RESISTIRLO", CON UN ARTÍCULO 263 BIS AL TÍTULO DÉCIMO "DELITOS CONTRA EL LIBRE DESARROLLO DE LA PERSONALIDAD" DEL CÓDIGO PENAL DEL ESTADO DE CAMPECHE".]
+PRIMERO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Se derogan todas las disposiciones legales y reglamentarias de igual o menor jerarquía del marco jurídico estatal, en lo que se opongan al contenido del presente decreto.
