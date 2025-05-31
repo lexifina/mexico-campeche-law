@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 30 DE MAYO DE 2025)
+Art. 147 Bis.- Cuando una persona tenga conocimiento de la existencia de dos registros de nacimiento a su nombre, en los archivos del Registro del Estado Civil, podrá solicitar, mediante escrito, la reserva administrativa de uno de los actos, siempre que acredite de manera fehaciente que se trata de la misma persona, sin perjuicio de las acciones legales que pueda emprender para solicitar la nulidad de dicho registro; para tal efecto se deberá proceder conforme al Reglamento del Registro del Estado Civil.
