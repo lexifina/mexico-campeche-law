@@ -1,5 +1,0 @@
-P.O. 1 DE DICIEMBRE DE 2020.
-[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 166 POR EL QUE "SE REFORMA EL INCISO B) DE LA FRACCIÓN III, LA FRACCIÓN III BIS Y LA FRACCIÓN III TER DEL ARTÍCULO 54; EL PÁRRAFO SEGUNDO DEL ARTÍCULO 54 BIS; LAS FRACCIONES XXXIII, XXXIV, EL SEGUNDO PÁRRAFO DE LA FRACCIÓN XXXV Y XXXVI DEL ARTÍCULO 71; LOS PÁRRAFOS SEGUNDO, TERCERO Y CUARTO DEL ARTÍCULO 106; LOS PÁRRAFOS TERCERO, CUARTO, QUINTO Y SEXTO DEL ARTÍCULO 107; Y EL PRIMER PÁRRAFO DEL ARTÍCULO 121 BIS, TODOS DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE CAMPECHE".]
-PRIMERO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
-SEGUNDO.- En un plazo máximo de 180 días contados a partir de la entrada en vigor del presente decreto se expedirá la Ley de las Asociaciones Público-Privadas del Estado de Campeche.
-TERCERO.- Se derogan todas las disposiciones legales, reglamentarias y administrativas de igual o menor jerarquía del marco jurídico estatal en lo que se opongan al presente decreto.

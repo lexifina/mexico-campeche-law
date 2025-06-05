@@ -1,5 +1,0 @@
-P.O. 28 DE MAYO DE 2025.
-[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 91 POR EL QUE "SE REFORMAN EL PÁRRAFO SEGUNDO DEL ARTÍCULO 24; LAS FRACCIONES I, V Y VI DEL ARTÍCULO 75 Y EL PÁRRAFO PRIMERO DEL ARTÍCULO 126 Y, SE ADICIONAN UN PÁRRAFO TERCERO AL ARTÍCULO 24; LA FRACCIÓN VII Y UN PÁRRAFO TERCERO AL ARTÍCULO 75; LA FRACCIÓN VI AL ARTÍCULO 121 Y UN PÁRRAFO QUINTO AL ARTÍCULO 126, TODOS DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE CAMPECHE".]
-PRIMERO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
-SEGUNDO.- Posterior a la fecha de publicación y entrada en vigor, se contará con 180 días hábiles, para armonizar el marco jurídico correspondiente, debiendo incluir disposiciones que determinen los alcances.
-TERCERO.- El Poder Ejecutivo del Estado, a través de la Secretaría de Administración y Finanzas deberán contemplar las medidas presupuestales correspondiente (sic), que permitan dar cumplimiento gradual a las presentes disposiciones.

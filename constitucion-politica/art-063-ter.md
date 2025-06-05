@@ -1,5 +1,0 @@
-(ADICIONADO, P.O. 18 DE SEPTIEMBRE DE 2024)
-ARTICULO 63 TER.- El Instituto Electoral del Estado de Campeche dentro de los siguientes treinta días hábiles a que se reciba la solicitud, verificará los requisitos establecidos y, en caso de ser procedente, emitirá inmediatamente la convocatoria al proceso para la revocación de mandato.
-La jornada de votación se realizará el domingo siguiente a los noventa días hábiles posteriores a que se emita la convocatoria y en fecha no coincidente con las jornadas electorales federal o locales.
-El Instituto Electoral del Estado de Campeche tendrá a su cargo, en forma directa, la organización, desarrollo y cómputo de la votación y emitirá los resultados de los procesos de revocación de mandato de la persona titular del Poder Ejecutivo del Estado, los cuales podrán ser impugnados ante la autoridad electoral jurisdiccional del Estado de Campeche. Los procedimientos y demás regulaciones en la materia se establecerán en la ley reglamentaria.
-En caso de que el mandato del Ejecutivo sea revocado, se estará a lo dispuesto en el artículo 65 de esta Constitución.

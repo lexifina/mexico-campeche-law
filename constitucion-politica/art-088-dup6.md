@@ -1,3 +1,0 @@
-(ADICIONADO, P.O. 24 DE JUNIO DE 2014)
-ARTICULO 88.5.- Durante el periodo de su encargo, los Magistrados electorales no podrán tener ningún otro empleo, cargo o comisión, con excepción de aquéllos en que actúen en representación de la Autoridad Electoral Jurisdiccional del Estado de Campeche y de los que desempeñe en asociaciones docentes, científicas, culturales, de investigación o de beneficencia, no remunerados.
-Concluido su encargo, no podrán asumir un cargo público en los órganos emanados de las elecciones sobre las cuales se hayan pronunciado, ni ser postulados para un cargo de elección popular o asumir un cargo de dirigencia partidista, por un plazo equivalente a una cuarta parte del tiempo en que haya ejercido su función.

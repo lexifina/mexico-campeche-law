@@ -1,6 +1,0 @@
-P.O. 30 DE NOVIEMBRE DE 1996.
-Primero.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
-Segundo.- La Sala Administrativa del Tribunal Superior de Justicia del Estado y los Juzgados Electorales se instalarán con la oportunidad debida tan luego entren en vigor las modificaciones que, en vía de consecuencia de este Decreto, se hagan a la Ley Orgánica del Poder Judicial del Estado y a la legislación electoral.
-Tercero.- Por esta única ocasión, mientras se legisla y reglamenta todo lo concerniente a la integración y funciones de los grupos parlamentarios, la atribución que se otorga a dichos grupos en la fracción III del artículo 24 la ejercerán las dirigencias estatales de los partidos políticos con registro y representación en el Congreso del Estado.
-Cuarto.- También por esta única ocasión, los Consejeros Electorales, los Magistrados de la Sala Administrativa del Tribunal Superior de Justicia y los Jueces Electorales serán electos por el voto de las tres cuartas partes de los diputados presentes en la correspondiente sesión del Congreso del Estado.
-Quinto.- Las facultades regulares que, en materia de geografía electoral en el aspecto de redistritación, al Instituto Electoral del Estado le confiere la fracción III del artículo 24 que se reforma, cobrarán vigencia a partir del 1º de enero de 1998.
