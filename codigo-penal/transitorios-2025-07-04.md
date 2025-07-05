@@ -1,0 +1,4 @@
+P.O. 4 DE JULIO DE 2025.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 96 POR EL QUE "SE ADICIONAN LA FRACCIÓN VII BIS AL ARTÍCULO 122 Y EL ARTÍCULO 160 BIS AL CÓDIGO PENAL DEL ESTADO DE CAMPECHE".]
+PRIMERO.- El presente decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Se derogan todas las disposiciones legales y reglamentarias en lo que se opongan al contenido del presente decreto.
