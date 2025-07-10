@@ -1,5 +1,5 @@
-(REFORMADO PRIMER PÁRRAFO, P.O. 3 DE DICIEMBRE DE 2020)
-Artículo 196 Ter.- Con independencia de las penas que correspondan por la comisión de otros delitos, para los efectos de este capítulo las sanciones contenidas en los artículos 196 y 196 bis, se aumentarán en una mitad cuando:
+(REFORMADO PRIMER PÁRRAFO, P.O. 9 DE JULIO DE 2025)
+Artículo 196 Ter.- Con independencia de las penas que correspondan por la comisión de otros delitos, para los efectos de este Capítulo las sanciones contenidas en los artículos 196, 196 bis y 196 bis-I, se aumentarán en una mitad cuando:
 (ADICIONADO, P.O. 26 DE DICIEMBRE DE 2014)
 a) el delito lo cometan los encargados de la custodia, vigilancia o traslado de los animales materia del ilícito;
 (ADICIONADO, P.O. 26 DE DICIEMBRE DE 2014)
@@ -22,5 +22,9 @@ i) Se trate de sementales o de vientres de registro para el mejoramiento genéti
 j) Los animales sean destazados en el lugar de crianza y sustraídos en todo o en parte.
 (ADICIONADO, P.O. 3 DE DICIEMBRE DE 2020)
 k) El o los responsables sean propietarios o posesionarios de los predios colindantes o contiguos, de los que sean sustraídos los animales;
-(ADICIONADO, P.O. 3 DE DICIEMBRE DE 2020)
-l) Cuando para cometer el delito el sujeto activo utilice o se sirva de documentación falsa o alterada.
+(REFORMADO, P.O. 9 DE JULIO DE 2025)
+l) Cuando para cometer el delito el sujeto activo utilice o se sirva de documentación falsa o alterada;
+(ADICIONADO, P.O. 9 DE JULIO DE 2025)
+m) Cuando sea cometido por quien tenga una relación laboral o, la persona o personas que lo realicen tengan un parentesco por consanguinidad o afinidad hasta el cuarto grado con el propietario; y
+(ADICIONADO, P.O. 9 DE JULIO DE 2025)
+n) Sea perpetrado por persona o personas que estén formalmente registradas como ganaderos en cualquier institución, unión, asociación o agrupación relacionada con la ganadería.
