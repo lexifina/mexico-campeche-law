@@ -9,5 +9,11 @@ VI. Promover investigaciones encaminadas a conocer las condiciones de nutrición
 VII. Establecer las necesidades nutritivas que deban satisfacer los cuadros básicos de alimentos;
 VIII. Proveer de mecanismos necesarios para dar acceso a suplementos alimenticios a grupos vulnerables.
 IX. Coordinarse con la Secretaría de Educación para implementar programas tendientes a evitar la venta de productos de bajo contenido nutricional, dentro de los establecimientos educativos, particularmente en instituciones de educación básica.
+(ADICIONADA, P.O. 1 DE AGOSTO DE 2025)
+X. Diseñar e implementar acciones y programas que prevengan trastornos de la conducta alimentaria;
+(ADICIONADA, P.O. 1 DE AGOSTO DE 2025)
+XI. Instrumentar y promover planes y/o programas que prevengan problemas de salud a partir de estereotipos y la autopercepción de la imagen corporal desde la infancia; y
+(ADICIONADA, P.O. 1 DE AGOSTO DE 2025)
+XII. Promover acciones encaminadas a desincentivar la venta de suplementos, sustancias o productos que se expendan como soluciones a problemas de salud y cuya composición y uso no cuente con aval de la autoridad sanitaria y, en su caso, se inicien los procedimientos sancionatorios que correspondan.
 Capítulo IV
 Efectos del Ambiente en la Salud

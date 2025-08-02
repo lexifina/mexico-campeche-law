@@ -1,0 +1,4 @@
+P.O. 1 DE AGOSTO DE 2025.
+[N. DE E. TRANSITORIO DEL DECRETO NÚMERO 102 POR EL QUE "SE REFORMAN LA FRACCIÓN XI DEL ARTÍCULO 26; LA FRACCIÓN VI DEL ARTÍCULO 69; LA FRACCIÓN I DEL ARTÍCULO 70; LOS PÁRRAFOS SEGUNDO Y TERCERO DEL ARTÍCULO 118 Y; SE ADICIONAN UNA FRACCIÓN XI BIS AL ARTÍCULO 26; UN PÁRRAFO SEGUNDO AL ARTÍCULO 30; UNA FRACCIÓN VI BIS AL ARTÍCULO 69 Y, LAS FRACCIONES X, XI Y XII AL ARTÍCULO 119 TER, TODAS DE LA LEY DE SALUD PARA EL ESTADO DE CAMPECHE".]
+PRIMERO.- El presente decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Se derogan todas las disposiciones legales y reglamentarias en lo que se opongan al contenido del presente decreto.
