@@ -1,0 +1,5 @@
+P.O. 8 DE AGOSTO DE 2025.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 104 POR EL QUE "SE REFORMA LA FRACCIÓN XX DEL ARTÍCULO 56 DE LA LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES DEL ESTADO DE CAMPECHE".]
+PRIMERO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- La Secretaría de Educación de la Administración Pública del Estado de Campeche, deberá coordinarse con la Secretaría Ejecutiva del Sistema Estatal de Protección Integral de los Derechos de Niñas, Niños y Adolescentes (SIPINNA), así como con instituciones especializadas en derechos digitales, para la elaboración o actualización de lineamientos y contenidos educativos orientados a la creación de entornos digitales seguros, con enfoque de género, derechos humanos y participación infantil, en un plazo no mayor a ciento ochenta días naturales.
+TERCERO.- Se derogan las disposiciones legales y reglamentarias del marco normativo local en lo que se opongan al presente decreto.
