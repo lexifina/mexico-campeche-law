@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 8 DE AGOSTO DE 2025)
+ARTÍCULO 69 Quater.- La Secretaría deberá incorporar en el Registro Social Estatal a la Sociedad Civil, con el fin de coordinar los esfuerzos para obtener la donación de alimentos en buen estado, que no hayan sido utilizados, para que se destinen a las personas en situación de pobreza alimentaria.
+Para efectos del presente artículo, la Secretaría requerirá a los donantes la acreditación de la inocuidad de los alimentos al momento de su inscripción en el Registro correspondiente, así como en cada proceso de donación, en términos de las disposiciones aplicables en la materia.

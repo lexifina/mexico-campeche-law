@@ -1,0 +1,4 @@
+P.O. 8 DE AGOSTO DE 2025.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 106 POR EL QUE "SE REFORMAN LA FRACCIÓN IX DEL ARTÍCULO 4; LA FRACCIÓN I DEL ARTÍCULO 10; LAS FRACCIONES XX Y XXII DEL ARTÍCULO 11; LA FRACCIÓN IV DEL ARTÍCULO 25; EL ARTÍCULO 79 Y, SE ADICIONAN LA FRACCIÓN XXIII AL ARTÍCULO 11; EL CAPÍTULO I BIS DENOMINADO "DE LA DONACIÓN Y APROVECHAMIENTO DE ALIMENTOS" CON LOS ARTÍCULOS 69 BIS, 69 TER Y 69 QUATER AL TÍTULO SEXTO, TODOS DE LA LEY DE DESARROLLO SOCIAL DEL ESTADO DE CAMPECHE".]
+PRIMERO.- El presente decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Se derogan todas las disposiciones legales y reglamentarias de igual o menor jerarquía del marco jurídico estatal, en lo que se opongan al contenido del presente decreto.
