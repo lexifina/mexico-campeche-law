@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 5 DE SEPTIEMBRE DE 2025)
+Artículo 44 Bis.- El avalúo para la determinación del monto de la indemnización por la expropiación, ocupación temporal, servidumbre administrativa, o limitación de los derechos de dominio, será realizado por la Secretaría de Administración y Finanzas de la Administración Pública del Estado de Campeche o, a solicitud de esta, por instituciones de crédito, o corredores públicos, o profesionistas con posgrado en valuación que se encuentren autorizados en los términos que indique la Secretaría de Administración y Finanzas.

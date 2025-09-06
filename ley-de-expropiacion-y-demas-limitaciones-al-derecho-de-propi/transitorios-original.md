@@ -5,3 +5,4 @@ Artículo Tercero.- Si al entrar en vigor esta Ley se encontraren pendientes de 
 Dado en el Palacio del Poder Legislativo del Estado, en Campeche, a los catorce días del mes de enero del año de mil novecientos ochenta y uno.- PROFR. ALVARO MUÑOZ QUERO, D.P.- ALEJO NAVARRETE LORIA, D.S.- PEDRO D. LOPEZ VARGAS, D.S.- Rúbricas.
 Por tanto mando se imprima, publique y circule, para su debido cumplimiento.
 Dado en el Edificio de los Poderes del Estado, en Campeche, a los catorce días del mes de enero del año de mil novecientos ochenta y uno.- El Gobernador Constitucional del Estado, ING. EUGENIO ECHEVERRIA CASTELLOT.- El Secretario de Gobierno, LIC. PABLO GONZALEZ LASTRA.- Rúbricas.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]

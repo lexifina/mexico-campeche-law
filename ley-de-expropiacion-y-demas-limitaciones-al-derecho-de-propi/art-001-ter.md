@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 5 DE SEPTIEMBRE DE 2025)
+Artículo 1 Ter.- Procederá la ocupación temporal, servidumbre administrativa, o la limitación de derechos de dominio, en los supuestos señalados en los artículos 4, 5 y 6 de esta ley, respectivamente.
+La persona titular del Poder Ejecutivo del Estado, a través de la Secretaría de Gobierno, publicará la declaratoria de utilidad pública respectiva y decretará la ocupación temporal, servidumbre administrativa, o la limitación de los derechos de dominio, según corresponda, dentro de los 30 días hábiles siguientes a la publicación de la mencionada declaratoria, y ordenará su ejecución inmediata.
