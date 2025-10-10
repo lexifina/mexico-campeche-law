@@ -1,0 +1,8 @@
+P.O. 13 DE JULIO DE 2018.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 274 POR EL QUE "SE ADICIONAN EL CAPÍTULO XV TER, DENOMINADO "DEL CENTRO DE CONCILIACIÓN LABORAL DEL ESTADO DE CAMPECHE" CON UN ARTÍCULO 76 TER Y UN PÁRRAFO CUARTO AL ARTÍCULO 85, TODOS DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE CAMPECHE".]
+Primero.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Campeche, atendiendo a las disposiciones previstas en los transitorios siguientes.
+Segundo.- Los Tribunales en materia laboral que se establecen en el párrafo cuarto del artículo 85 del presente decreto, iniciarán sus funciones el día en que entren en vigor las modificaciones respectivas a la Ley Federal del Trabajo.
+Tercero.- El Centro de Conciliación Laboral del Estado de Campeche deberá crearse mediante la ley correspondiente de conformidad con la reforma a la Constitución Política de los Estados Unidos Mexicanos en dicha materia.
+Cuarto.- El H. Tribunal Superior de Justicia del Estado deberá promover las adecuaciones a la Ley Orgánica del Poder Judicial del Estado de Campeche en un plazo no mayor a treinta días hábiles a partir de la publicación del presente decreto, especificando la salvedad establecida en el Articulo Transitorio Segundo del presente decreto.
+Quinto.- Los Poderes Ejecutivo y Judicial promoverán las adecuaciones presupuestarias ante la autoridad correspondiente, para el cabal cumplimiento de lo dispuesto en el presente decreto.
+Sexto.- Se derogan todas las disposiciones legales y reglamentarias de igual o menor jerarquía del marco jurídico estatal, que se opongan al contenido del presente decreto.

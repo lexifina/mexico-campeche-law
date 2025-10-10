@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 24 DE JUNIO DE 2014)
+ARTICULO 88.7.- El H. Congreso del Estado deberá fijar de manera anual en el Presupuesto de Egresos, una partida correspondiente a la Autoridad Electoral Jurisdiccional del Estado de Campeche y establecerá las remuneraciones de los Magistrados electorales en términos del artículo 127 de la Constitución Federal, las cuales no podrán disminuirse durante el tiempo que dure su encargo.
+La Autoridad Electoral Jurisdiccional del Estado de Campeche contará con el personal técnico, de asesoría y apoyo que necesite para el ejercicio de sus funciones.
