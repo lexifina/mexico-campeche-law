@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 5 DE NOVIEMBRE DE 2025)
+Artículo 91 Bis.- La persona que incurra en exceso respecto de alguna causa de justificación será sancionada conforme a lo previsto en el artículo 90 de este Código, sin perjuicio de que el hecho se atribuya como realizado con dolo.
+No se considerará que existe exceso en los casos de legítima defensa ejercida por una mujer, cuando ésta haya sido víctima de violencia física, sexual o feminicida, o se haya encontrado en peligro inminente de serlo, y al momento de los hechos acredite haber actuado bajo un estado de miedo, terror o confusión que le haya impedido valorar adecuadamente los límites de su respuesta o la racionalidad de los medios empleados.
