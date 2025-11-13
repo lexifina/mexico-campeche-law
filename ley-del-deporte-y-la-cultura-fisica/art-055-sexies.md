@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 12 DE NOVIEMBRE DE 2025)
+Artículo 55 Sexies.- Las personas aspirantes a ingresar a cualquiera de las disciplinas del deporte adaptado y deporte de las personas adultas mayores, requerirán un certificado médico que los acredite aptos para su práctica. Cuando deseen realizar actividades deportivas, que no impliquen un riesgo para la salud, no será necesaria la presentación del diagnóstico médico citado.

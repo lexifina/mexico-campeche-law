@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 12 DE NOVIEMBRE DE 2025)
+Artículo 55 Quinquies.- Las personas a que se refiere este Capítulo recibirán sin discriminación alguna, los estímulos y demás beneficios que se establecen en esta ley, además se incluirán becas vitalicias para las y los atletas campechanos sobresalientes, activos o retirados que practiquen en las diferentes disciplinas del deporte adaptado o deporte de las personas adultas mayores, de conformidad con las reglas o lineamientos que emita el Ejecutivo Estatal.
