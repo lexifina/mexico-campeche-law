@@ -4,6 +4,8 @@ El Tribunal de Justicia Administrativa del Estado de Campeche tendrá a su cargo
 (REFORMADO, P.O. 18 DE ENERO DE 2021)
 El Tribunal de Justicia Administrativa funcionará de conformidad con su Ley Orgánica en la que deberá existir, entre otros, la Sala Especializada en materia de anticorrupción y responsabilidades administrativas. Dicha Ley Orgánica establecerá su organización y funcionamiento y estará conformado por tres Magistradas y Magistrados que serán designados por la Gobernadora o el Gobernador del Estado y ratificados por el voto de las dos terceras partes de los miembros presentes del H. Congreso del Estado o, en sus recesos, por la Diputación Permanente. En su conformación se observará el principio de paridad de género.
 Los Magistrados durarán en su encargo quince años improrrogables y sólo podrán ser removidos de sus cargos por las causas graves que señale la Ley.
+(ADICIONADO, P.O. 4 DE FEBRERO DE 2026)
+El Tribunal de Justicia Administrativa del Estado de Campeche, a través de su Órgano encargado de las funciones de contraloría, tendrá competencia para conocer de los asuntos relacionados con el acceso a la información pública y la protección de datos personales, en el ámbito de su competencia; también conocerá de los recursos en los términos que establezca la Ley en la materia.
 (ADICIONADO CON EL ARTÍCULO QUE LO INTEGRA, P.O. 27 DE JUNIO DE 2017)
 CAPITULO XVII TER
 Del Sistema Anticorrupción del Estado de Campeche
