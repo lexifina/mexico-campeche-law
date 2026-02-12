@@ -1,0 +1,6 @@
+P.O. 11 DE FEBRERO DE 2026.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 197 POR E QUE "SE REFORMA EL ARTÍCULO 5; EL INCISO B) Y LA FRACCIÓN III DEL INCISO D) DEL ARTÍCULO 16; LA FRACCIÓN IV DEL ARTÍCULO 31; Y LA FRACCIÓN VII DEL ARTÍCULO 54, TODOS DE LA LEY DEL DEPORTE Y LA CULTURA FÍSICA PARA EL ESTADO DE CAMPECHE".]
+PRIMERO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- El Instituto del Deporte del Estado de Campeche y la Secretaría de Administración, Finanzas y Planeación de la Administración Pública Estatal deberán, en un plazo no mayor a 90 días contados a partir de la entrada en vigor de este decreto, emitir las disposiciones reglamentarias y programáticas para establecer mecanismos, criterios, requisitos y montos para hacer efectivo el derecho a becas, apoyos y estímulos para deportistas de alto rendimiento, de conformidad a la suficiencia presupuestaria.
+TERCERO.- Las becas y apoyos otorgados a deportistas de alto rendimiento deberán observar el principio de progresividad, igualdad sustantiva, no discriminación y el interés superior de la niñez; en ningún caso podrán disminuir respecto del ejercicio fiscal inmediato anterior.
+CUARTO.- Se derogan todas las disposiciones legales de igual o menor jerarquía en lo que se opongan al contenido del presente decreto.

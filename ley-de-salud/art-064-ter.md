@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 11 DE FEBRERO DE 2026)
+Artículo 64 Ter.- Las instituciones públicas, sociales y privadas que integren el sector salud deberán notificar de manera inmediata al Ministerio Público en los casos que tengan conocimiento de que una niña o adolescente se encuentre embarazada, haya dado luz (sic) o existan indicios de que una niña, niño o adolescente ha sido víctima de abuso o violencia sexual.
+La notificación no estará condicionada al consentimiento o autorización previa de madres, padres, tutores o personas cuidadoras, y deberá realizarse bajo un enfoque de protección reforzada, interés superior de la niñez, debida diligencia y máxima protección de derechos humanos.
+El Estado garantizará atención integral, inmediata y especializada a niñas, niños y adolescentes víctimas de abuso y/o violencia sexual, a través de la coordinación entre las autoridades competentes, en términos de las normas oficiales mexicanas emitidas en esa materia.
