@@ -6,3 +6,8 @@ Artículo 378 bis.- Comete el delito de uso indebido de los sistemas de emergenc
 Al responsable de esta conducta se le impondrá de tres meses a un año de prisión y multa de diez a cincuenta días de salario.
 En caso de reincidencia se impondrá de uno a dos años de prisión y multa de cien a doscientos días de salario.
 Si por la comisión de este delito se provoca un accidente o algún daño, ya sea personal o material, se le impondrá de dos a tres años de prisión y multa de trescientos a quinientos días de salario.
+TÍTULO VIGÉSIMO QUINTO
+DELITOS CONTENIDOS EN LEYES ESPECIALES
+(REFORMADA SU DENOMINACIÓN, P.O. 20 DE MARZO DE 2026)
+CAPÍTULO I
+NARCOMENUDEO, SECUESTRO, TRATA DE PERSONAS, TORTURA Y OTROS TRATOS O PENAS CRUELES, INHUMANOS O DEGRADANTES, DELITOS ELECTORALES, DELITO DE EXTORSIÓN Y LOS DELITOS VINCULADOS CON EL DELITO DE EXTORSIÓN

@@ -1,0 +1,6 @@
+P.O. 20 DE MARZO DE 2026.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 203 POR EL QUE "SE REFORMA EL ARTÍCULO 5 DE LA LEY DE DEFENSORÍA PÚBLICA Y ASISTENCIA JURÍDICA GRATUITA DEL ESTADO DE CAMPECHE".]
+PRIMERO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Se derogan todas las disposiciones legales y reglamentarias del marco jurídico estatal en lo que se opongan al contenido del presente decreto.
+TERCERO.- De manera enunciativa más no limitativa, en un plazo de 90 días contados a partir de la entrada en vigor del presente decreto, deberán realizarse las modificaciones correspondientes al Reglamento Interior del Instituto de Acceso a la Justicia del Estado de Campeche, al Reglamento Interior de la Secretaría de Gobierno, al Reglamento Interior de la Consejería Jurídica, y demás disposiciones relativas y aplicables del marco jurídico estatal que resulten necesarias para el debido cumplimiento de lo dispuesto por este decreto.
+CUARTO.- En un plazo no mayor a 30 días naturales contados a partir de la entrada en vigor del presente decreto se deberá instalar y celebrar la primera sesión de la Junta de Gobierno, en el lugar y fecha que oportunamente determine la o el Presidente de la Junta de Gobierno.
