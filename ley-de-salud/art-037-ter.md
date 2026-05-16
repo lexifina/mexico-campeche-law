@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 15 DE MAYO DE 2026)
+Artículo 37 Ter.- Las cuotas que se cobren por la prestación de servicios de salud en las instituciones de salud públicas y privadas deberán coincidir, en todo momento, con las que se encuentren exhibidas de forma visible al público.
+En ningún caso por la prestación de dichos servicios médicos mencionados podrá condicionarse por ningún servidor público o persona alguna la forma de pago, cuando la persona usuaria requiera comprobantes fiscales o solicite una modalidad específica por motivos tributarios. Misma situación es de aplicarse para la prestación de servicios médicos privados por personas físicas o morales.
+El incumplimiento a lo dispuesto en este artículo podrá ser denunciado ante las autoridades competentes, conforme a lo previsto en la legislación aplicable en materia de protección al consumidor y servicios financieros.
