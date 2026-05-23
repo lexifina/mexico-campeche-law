@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 22 DE MAYO DE 2026)
+ARTÍCULO 185 QUATER.- Los Sistemas Municipales de Protección Integral de Niñas, Niños y Adolescentes tendrán las atribuciones que establece el artículo 126 Bis de la Ley de los Derechos de Niñas, Niños y Adolescentes del Estado de Campeche.
+Los Sistemas Municipales de Protección Integral de Niñas, Niños y Adolescentes, por conducto de las Secretarías Ejecutivas, deberán diseñar e implementar sus Reglamentos correspondientes, de acuerdo con el funcionamiento de cada municipio.
+Los Ayuntamientos deberán prever progresivamente, conforme a su suficiencia presupuestal, recursos para el funcionamiento y operación del Sistema Municipal de Protección Integral de Niñas, Niños y Adolescentes.
+El Sistema Municipal de Protección Integral, por conducto de su Secretaría Ejecutiva, deberá rendir un informe anual público sobre las acciones realizadas, avances, retos y resultados obtenidos, el cual será presentado ante el Cabildo y remitido al Sistema Estatal de Protección Integral.
