@@ -1,0 +1,7 @@
+(ADICIONADO, P.O. 8 DE JUNIO DE 2026)
+Artículo 62 Bis.- Para efectos de la presente Ley, se consideran vehículos de movilidad personal eléctricos aquellos dispositivos de transporte individual que funcionan mediante motor eléctrico o tecnología similar y que están destinados al traslado de personas en trayectos cortos, tales como scooters eléctricos, patinetas y bicicletas eléctricas asistidas.
+Cuando dichos vehículos cuenten con motor de baja potencia susceptible de alcanzar velocidades superiores a veinticinco kilómetros por hora, serán considerados para efectos de seguridad vial dentro de las disposiciones aplicables a vehículos motorizados en lo relativo a medidas mínimas de tránsito.
+Las personas que conduzcan vehículos de movilidad personal eléctricos deberán observar las disposiciones de seguridad vial establecidas en la presente Ley, su Reglamento y demás normativa aplicable.
+En todo momento, las personas conductoras deberán utilizar equipo básico de protección, incluyendo casco protector debidamente ajustado, así como respetar las normas de tránsito y señalización correspondientes.
+Cuando dichos vehículos sean utilizados por personas menores de edad, quienes ejerzan la patria potestad, tutela o guarda deberán procurar el cumplimiento de las medidas de seguridad previstas en esta Ley.
+Las autoridades de tránsito podrán establecer medidas preventivas y sanciones conforme a lo previsto en las infracciones y sanciones de la presente Ley y su Reglamento.
