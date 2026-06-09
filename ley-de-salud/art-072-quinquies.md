@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 8 DE JUNIO DE 2026)
+Artículo 72 Quinquies.- La Secretaría Estatal en coordinación con la Secretaría de Educación del Estado, de manera progresiva y conforme a la disponibilidad presupuestal, garantizará a las niñas y niños inscritos en instituciones públicas del Estado de educación inicial, preescolar y primaria, el acceso a revisiones odontológicas preventivas y profilácticas periódicas, priorizando a quienes habiten en comunidades rurales y zonas de atención prioritaria o en condiciones de vulnerabilidad social.
+Las revisiones preventivas previstas en el presente artículo deberán realizarse preferentemente al menos una vez por ciclo escolar, conforme a la capacidad operativa y presupuestal de las autoridades competentes.
+Las acciones previstas en el presente artículo deberán realizarse sin discriminación alguna y con independencia del régimen de seguridad social o esquema de protección en salud al que pertenezcan las personas beneficiarias.

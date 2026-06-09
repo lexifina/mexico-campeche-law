@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 8 DE JUNIO DE 2026)
+Artículo 72 Quater.- Los programas y acciones en materia de salud bucodental deberán incorporar, de manera prioritaria, medidas preventivas, educativas y de atención temprana dirigidas a niñas, niños y adolescentes, observando en todo momento el principio del interés superior de la niñez.
+Asimismo, deberán impulsarse campañas permanentes de higiene bucal, orientación nutricional, prevención de caries y enfermedades periodontales, promoción del cepillado correcto y demás acciones encaminadas a fortalecer una cultura de autocuidado y salud integral en los entornos familiar, escolar y comunitario.

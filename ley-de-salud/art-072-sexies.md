@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 8 DE JUNIO DE 2026)
+Artículo 72 Sexies.- El Estado por conducto de la Secretaría Estatal promoverá, en coordinación con las autoridades federales, estatales y municipales competentes, así como con instituciones académicas y de investigación, estudios, diagnósticos, campañas y acciones orientadas a mejorar las condiciones de salud bucodental de la población del Estado de Campeche.
+Las políticas públicas que deriven de dichas acciones deberán sustentarse en evidencia científica, indicadores epidemiológicos y criterios de atención, conforme a lo previsto en la Ley General de Salud y demás disposiciones jurídicas aplicables.
+La Secretaría Estatal procurará integrar y actualizar periódicamente información estadística y diagnósticos territoriales sobre salud bucodental, con el objeto de orientar la focalización y evaluación de las acciones previstas en el presente Capítulo.
