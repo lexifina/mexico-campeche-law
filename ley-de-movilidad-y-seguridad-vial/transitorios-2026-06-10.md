@@ -1,0 +1,8 @@
+P.O. 10 DE JUNIO DE 2026.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 246 POR EL QUE "SE ADICIONA EL PÁRRAFO QUINTO AL ARTÍCULO 137 Y SE REFORMA EL ARTÍCULO 139 DE LA LEY DE MOVILIDAD Y SEGURIDAD VIAL DEL ESTADO DE CAMPECHE".]
+PRIMERO.- El presente decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- El Ejecutivo del Estado, por conducto de las instancias competentes en materia de movilidad, podrán realizar las adecuaciones administrativas, operativas y regulatorias que, en el ámbito de sus atribuciones, resulten necesarias para el debido cumplimiento del presente decreto.
+TERCERO.- La implementación de los mecanismos relacionados con tarifas preferenciales para estudiantes deberá realizarse de manera gradual, ordenada y conforme a la disponibilidad operativa y administrativa de las autoridades competentes, procurando condiciones de accesibilidad, igualdad y no discriminación para las personas usuarias del servicio público de transporte.
+Para tales efectos, las autoridades competentes podrán coordinarse con instituciones educativas y demás instancias vinculadas con la materia, a efecto de facilitar mecanismos de validación, actualización o acreditación de personas beneficiarias, así como acciones de difusión e información dirigidas a la ciudadanía.
+Las medidas que se implementen con motivo del presente decreto deberán observar criterios de inclusión y accesibilidad, evitando, en la medida de lo posible, prácticas o mecanismos que generen barreras injustificadas para el acceso a tarifas preferenciales.
+CUARTO.- Se derogan todas las disposiciones legales y reglamentarias de igual o menor jerarquía del marco jurídico estatal en lo que se opongan al contenido del presente decreto.
