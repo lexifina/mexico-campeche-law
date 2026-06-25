@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 24 DE JUNIO DE 2026)
+Artículo 3 Bis.- El Estado promoverá acciones para la preservación, salvaguarda, fortalecimiento y difusión de las técnicas, conocimientos, expresiones y manifestaciones artesanales tradicionales que formen parte del patrimonio cultural de las comunidades del Estado, con especial atención a la participación de las mujeres artesanas.
+Para tal efecto, las autoridades correspondientes podrán impulsar mecanismos de identificación, promoción, trazabilidad cultural y reconocimiento del origen comunitario de las artesanías campechanas, en coordinación con las autoridades competentes en materia de patrimonio cultural y propiedad intelectual.
