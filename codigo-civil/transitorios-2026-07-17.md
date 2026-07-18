@@ -1,0 +1,5 @@
+P.O. 17 DE JULIO DE 2026.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 257 POR EL QUE "SE REFORMAN EL PÁRRAFO SEGUNDO DEL ARTÍCULO 39; LOS ARTÍCULOS 95; 96; 97; 98; 168; 323; LA DENOMINACIÓN DE LA SECCIÓN TERCERA "DE LA ADOPCIÓN PLENA" DEL CAPÍTULO V DEL TÍTULO SÉPTIMO, PARA QUEDAR COMO SECCIÓN TERCERA "DE LA ADOPCIÓN"; LOS ARTÍCULOS 426 A; 426 B; 426 C; 426 D; 426 E; 426 F; 426 H; EL PÁRRAFO PRIMERO DEL ARTÍCULO 426 I; LOS ARTÍCULOS 426 L; 433; 1511 Y, SE DEROGAN LOS ARTÍCULOS 312 Y 426 G, TODOS DEL CÓDIGO CIVIL DEL ESTADO DE CAMPECHE".]
+PRIMERO.- El presente decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Los trámites y procedimientos que se encuentren en curso de adopción simple, plena e internacional de la jurisdicción del Estado de Campeche, serán considerados trámites de adopción, en términos de lo previsto en este decreto.
+TERCERO.- Se derogan todas las disposiciones legales y reglamentarias de igual o menor jerarquía del marco jurídico estatal, en lo que se opongan al contenido del presente decreto.
