@@ -1,0 +1,6 @@
+P.O. 29 DE JULIO DE 2026.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 262 POR EL QUE "SE ADICIONA EL ARTÍCULO 161 BIS A LA LEY ORGÁNICA DE LOS MUNICIPIOS DEL ESTADO DE CAMPECHE".]
+PRIMERO.- El presente decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Los Ayuntamientos del Estado deberán, en un plazo no mayor a ciento ochenta días naturales contados a partir de la entrada en vigor del presente decreto, revisar y, en su caso, adecuar sus reglamentos municipales, instrumentos de planeación, programas operativos y disposiciones administrativas, en el ámbito de sus respectivas competencias, a fin de dar cumplimiento progresivo a lo establecido en este decreto.
+TERCERO.- Los Ayuntamientos deberán incorporar de manera progresiva en sus respectivos presupuestos de egresos, conforme a sus instrumentos de planeación y disponibilidad financiera, las previsiones presupuestarias necesarias para avanzar en el cumplimiento de las obligaciones previstas en el presente decreto, en el ámbito de sus respectivas competencias.
+CUARTO.- Se derogan todas las disposiciones legales y reglamentarias de igual o menor jerarquía del marco jurídico estatal, en lo que se opongan al contenido del presente decreto.
