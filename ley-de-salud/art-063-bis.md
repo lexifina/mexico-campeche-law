@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 10 DE DICIEMBRE DE 2019)
-Artículo 63 bis.- La atención a la salud de la mujer comprende principalmente los programas de prevención de cáncer cérvico-uterino, cáncer mamario, así como la prevención y control de riesgo preconcepcional, climaterio, menopausias y las enfermedades de transmisión sexual.
+(REFORMADO, P.O. 29 DE SEPTIEMBRE DE 2026)
+Artículo 63 bis.- La atención a la salud de la mujer comprende principalmente los programas de prevención de cáncer cérvico-uterino; cáncer mamario; la prevención y control de riesgo preconcepcional; climaterio; menopausia; las enfermedades de transmisión sexual, así como la prevención, detección y atención de endometriosis u otros padecimientos ginecológicos incapacitantes.
