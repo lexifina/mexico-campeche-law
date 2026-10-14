@@ -1,0 +1,6 @@
+P.O. 13 DE OCTUBRE DE 2026.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 298 POR EL QUE "SE REFORMA EL PÁRRAFO SEGUNDO DEL ARTÍCULO 3 Y SE ADICIONAN UN PÁRRAFO TERCERO AL ARTÍCULO 3 Y UN ARTÍCULO 3 BIS DE LA LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES DEL ESTADO DE CAMPECHE".]
+PRIMERO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Las autoridades estatales y municipales, en el ámbito de sus respectivas competencias, deberán adoptar las medidas administrativas necesarias para dar cumplimiento a las disposiciones previstas en el presente decreto, dentro de los noventa días naturales siguientes a su entrada en vigor. Durante dicho plazo, las disposiciones del decreto se aplicarán en aquello que no requiera de las medidas administrativas previstas en este artículo, conforme a otras disposiciones aplicables.
+TERCERO.- Las autoridades estatales y municipales deberán observar, en la aplicación del presente decreto, los principios de interés superior de la niñez, máxima protección, progresividad y enfoque de derechos humanos, privilegiando en todo momento la protección más amplia de los derechos de niñas, niños y adolescentes.
+CUARTO.- Se derogan todas las disposiciones legales y reglamentarias del marco normativo local en lo que se opongan al contenido del presente decreto.
